@@ -1,2 +1,2 @@
-# camp2025.github.io
+# camp2025
 LNDYM Camp 2025
