@@ -1,2 +1,2 @@
-# camp2025
+# camp 2025
 LNDYM Camp 2025
