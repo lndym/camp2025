@@ -41,7 +41,7 @@
 
     <section class="about-us">
         <h2>About Us</h2>
-        <p>A website designed specifically for LNDYM Camp 2025. Under Construction. </p>
+        <p>FROM VSC. A website designed specifically for LNDYM Camp 2025. Under Construction. </p>
     </section>
 
     <section class="faith-section">
