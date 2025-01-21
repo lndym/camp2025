@@ -41,7 +41,7 @@
 
     <section class="about-us">
         <h2>About Us</h2>
-        <p>Welcome to our organization! We are dedicated to fostering a sense of community and promoting spiritual growth. Our mission is to inspire and empower individuals through our faith and values.</p>
+        <p>A website designed specifically for LNDYM Camp 2025. Under Construction. </p>
     </section>
 
     <section class="faith-section">
