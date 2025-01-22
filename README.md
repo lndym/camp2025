@@ -43,3 +43,44 @@
 **9.** 
 * **Gujarati:** અને તે સદાચારનું ઉલ્લંઘન કરીને જે મનુષ્ય પોતાના મનમાં આવે તેમ વર્તે છે, તે તો કુબુદ્ધિવાળા છે અને આ લોક ને તથા પરલોકને વિષે મહા કષ્ટને જે પામે છે.
 * **Lipi:** Anē tē sadācārunuṁ ullānghana karīne je manuṣya potānā manmāṁ āvē tem varte che, tē to kubuddhivālā che ane ā lōk ne tathā paralōkne viśe mahā kasta ne je pāmē che.
+* **English:** Those who violate the Rules of Ethics and act willfully with evil intentions shall endure significant distress both in this world and in Parlok (after death in Yampuri).
+
+**10.** 
+* **Gujarati:** તે માટે અમારા શિષ્ય એવા જે તમે સર્વે તેમને તો પ્રીતિએ કરીને આ શિક્ષાપત્રીને અનુસરીને જે નિરંતર સાવધાનપણે વર્તવું, પણ આ શિક્ષાપત્રીનું ઉલ્લંઘન કરીને વર્તવું નહીં.
+* **Lipi:** Tē māṭe amārā śiṣya evā je tame sarve temne to prītiē karīne ā śikṣāpatrīnē anusarīne je niraṉtara sāvadhānapanē vartavuṁ, paṇa ā śikṣāpatrīnuṁ ullānghana karīne vartavuṁ nahi.
+* **English:** All my disciples shall follow the commandments of this Shikshapatri vigilantly and not violate them.
+
+**11.** 
+* **Gujarati:** હવે તે વર્ત્યાની રીતિ કહીએ છીએ જે – અમારા જે સત્સંગી તેમણે કોઈ જીવ-પ્રાણી-માત્રની પણ હિંસા ન કરવી અને જાણીને તો ઝીણા એવા જુ, માંકડ, ચાંચડ આદિકા જીવ તેમની પણ હિંસા ક્યારે ન કરવી.
+* **Lipi:** Have tē vartyānī rīti kahīē chie je – amārā je satsaṅgī temṇe koi jīva-prāṇi-mātraṇī paṇa hinsā na karvī ane jāṇīne to zhīṇā evā ju, māṅkaḍ, cāṅcaḍ ādika jīva temnī pan hinsā kyārē na karvī.
+* **English:** Now, I shall describe the way of living - my aashrit should not cause harm to any living being, such as lice, bed bugs, insects, etc., knowingly or unknowingly.
+
+**12.** 
+* **Gujarati:** અને દેવતા અને પિતૃ તેના યજ્ઞને અર્થે પણ બકરાં, મૃગલાં, સસલાં, માછલાં આદિકા કો’ઈ જીવ-ની હિંસા ન કરવી, કેમ કે અહિંસા છે તે જે મનુષ્ય પાળે છે તે મનુષ્ય જે તે આ લોકને વિષે તથા પરલોકને વિષે મહાધર્મ છે એમ સર્વે શાસ્ત્રમાં કહ્યું છે.
+* **Lipi:** Anē devatā ane pitṛ tenā yajñne arthe pan bakarāṁ, mṛgalāṁ, sasalāṁ, mācalāṁ ādika ko'ī jīva-nī hinsā na karvī, kema je ahiṁsā che te je manuṣya pāḷe che tē manuṣya je tē ā lōkne viśe tathā paralōkne viśe mahādharma che ēm sarve śāstramāṁ kahyūṁ che.
+* **English:** And for the deities and ancestors in their bali (sacrifices), no violence should be done to any living being, such as goats, deer, rabbits, fish, etc. This ahimsa (non-violence) is the highest dharma, as stated in all shastra.
+
+**13.** 
+* **Gujarati:** અને સ્ત્રી, ધન અને રાજ્ય તેની પ્રાપ્તિ ને અર્થે પણ કો’ઈ મનુષ્ય-ની હિંસા તો કો’ઈ પ્રકારે ક્યારે પણ ન કરવી.
+* **Lipi:** Anē strī, dhan ane rājya tenī prāpti ne arthe pan ko'ī manuṣya-nī himsā to ko'ī prakārē kyārē pan na karvī.
+* **English:** And a person should never commit himsa (violence) against anyone for the sake of obtaining women, wealth, or kingdom.
+
+**14.** 
+* **Gujarati:** અને આત્મ-ઘાત તો તીર્થન ને વિષે પણ ન કરવો, ને ક્રોધે કરીને પણ ન કરવો, અને ક્યારે કોઈ અયોગ્ય આચરણ થઈ જાય તો તે થી મઝાઈ ને પણ આત્મઘાત ન કરવો અને ઝેર ખાઈ ને તથા ગળે ફાંસો ખાઈ ને તથા કૂવા માં પડી ને તથા પર્વત પર થી પડી ને ઈત્યાદિક કોઈ રીતે આત્મ-ઘાત ન કરવો.
+* **Lipi:** Anē ātma-ghāt to tīrthan ne viṣe pan na karvo, ne krodhē karīne pan na karvo, ane kyārē koi ayōgya ācharaṇ thāy te thakī muṁjhāīne pan ātma-ghāt na karvo, ane jēra khaine tatha gale tunpo khaine tatha kuve padine tatha parvat parti padine ityadi koi rite aatmaghat na karvo.
+* **English:** And never commit self-harm by visiting (tirthsthan) sacred places, nor by anger, and even if one's conduct becomes improper, one should refrain from self-harm, by any means. 
+
+**15.** 
+* **Gujarati:** અને જે માંસ છે તે તો યજ્ઞ નું શેષ હોય તો પણ આપત્કાળ માં પણ ક્યારેય ન ખાવું, અને ત્રણ પ્રકાર ની સુરા અને અગિયાર પ્રકાર નું મધ, તે દેવતા નું નૈવેદ્ય હોય તો પણ ન પીવું.
+* **Lipi:** Ane je maans chhe, te to yajṉṉuṁ shesh hoy to pan āpatkālmaṁ pan kyārēy n khāvu ane traṇ prakār-nī surā ane agiyāra prakār-nuṁ madh, te devtanu naivedya hoy to pan na pīvu.
+* **English:** And under any circumstances, one shall not eat meat, even if it is in the form of prasad. Nor shall one drink liquor, wine or intoxicating beverages even though it may be an offering to a deity. 
+
+**16.** 
+* **Gujarati:** અને ક્યારેક પોતાથી કાંઈક અયોગ્ય આચરણ થયું હોય અથવા કોઈ બીજાથી અયોગ્ય આચરણ થયું હોય તો શસ્ત્ર આદિક કરીને અથવા ક્રોધ કરીને પણ પોતાના અંગ નું તથા બીજાના અંગ નું છેદન ન કરવું.
+* **Lipi:** Anē kyārēk potāthi kāṅ'īk ayōgya ācaraṇ thayuṁ hōy athavā kō'ī bījāthi ayōgya ācaraṇ thayuṁ hōy tō śastrādikē karīnē athavā krōdhē karīnē paṇa potānā aṅganuṁ tathā bījānā aṅganuṁ chēdana na karvūṁ.
+* **English:** And no one shall ever harm or cut any part of one’s body or that of others with a weapon or by any other means because of any unworthy deed either by oneself or by others. 
+
+**17.** 
+* **Gujarati:** અને ધર્મ કરવાના અર્થે પણ અમારા સત્સંગી એ કોઈ પણ ચોરી નું કર્મ ન કરવું. અને ધણીયાતું જે કાષ્ઠ, પુષ્પ, આદિક વસ્તુ તે તેના ધણી ની આજ્ઞા વિના ન લેવું.
+* **Lipi:** Anē dharma karvānē arthē paṇa amārā satsaṅgī kō'īē cōranuṁ karma na karvūṁ. Anē dhaniyatunn jē kāṣṭha, puṣpa, ādika vastu tē tēnā dhaṇīnī āgñā vinā na lēvūṁ.
+* **English:** And one shall not commit theft, even for the sake of performing an act of Dharma.
