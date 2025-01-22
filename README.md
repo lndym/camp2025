@@ -291,5 +291,51 @@
 * **Lipi:** Ane pachhī śrīkṛṣṇa bhagvān ne naivedya arpaṇ karī tēno prasād grahaṇa karvō ane bhagvān nī sevā parāyaṇa rahēvūṁ.  
 * **English:** They shall offer naivedya (food offering) to Shree Krishna Bhagwan, consume the prasad, and remain engaged in His service with devotion.
 
+**59.**  
+* **Gujarati:** અને નિર્ગુણ કહીએ તે માયાના સત્વાદિક ત્રિગુણથી રહિત એવા શ્રીકૃષ્ણ ભગવાનના સબંધથી તે આત્મનિવેદી ભક્તની ક્રિયાઓ નિર્ગુણ હોય છે.  
+* **Lipi:** Ane nirguṇa kahiē tē māyānā satvādik triguṇthī rahit ēvā śrīkṛṣṇa bhagvān nā sambandh thī tē ātmnivēdī bhakta nī kriyā'ō nirguṇa hoy chē.  
+* **English:** Nirgun refers to being beyond the three qualities of Maya (Sattva, Rajas, and Tamas). The deeds of Atmanivedi bhaktas are considered Nirgun due to their connection with Shree Krishna Bhagwan.
+
+**60.**  
+* **Gujarati:** અને એ આત્મનિવેદી ભક્તોએ શ્રીકૃષ્ણ ભગવાનને અર્પણ કર્યા વિના જળ પણ ન પીવું અને પત્ર, કંદ, ફળ વગેરે પણ અર્પણ કર્યા વિના ન ગ્રહણ કરવું.  
+* **Lipi:** Ane ē ātmnivēdī bhakta'ōē śrīkṛṣṇa bhagvān nē arpaṇ karyā vinā jal paṇ nā pīvuṁ ane patra, kanda, phala vagere paṇ arpaṇ karyā vinā nā grahaṇa karvūṁ.  
+* **English:** Atmanivedi bhaktas shall not consume even water without offering it to Shree Krishna Bhagwan, nor shall they eat leaves, roots, or fruits without first offering them.
+
+**61.**  
+* **Gujarati:** અને વળી જે સત્સંગી વૃદ્ધાવસ્થાને કારણે અથવા આપત્તિથી અસમર્થ થઈ જાય તે પોતાનું પૂજ્ય સ્વરૂપ બીજા ભક્તને આપીને પોતાની શક્તિ પ્રમાણે વર્તવું.  
+* **Lipi:** Ane vaḷī je satsaṅgī vṛddhāvasthāne kāraṇe athavā āpattithī asamarth thaī jāy tē potānuṁ pūjya svarūpa bījā bhakt nē āpīnē potānī śakti pramāṇē vartavūṁ.  
+* **English:** A devotee who becomes physically incapable due to old age or adversity shall entrust their idol of Shree Krishna Bhagwan to another devotee and conduct themselves according to their capacity.
+
+**62.**  
+* **Gujarati:** અને શ્રીકૃષ્ણનું સ્વરૂપ આચાર્યે અર્પણ કરેલું અથવા જે પ્રતિષ્ઠિત સ્વરૂપ હોય તે જ સેવવું, બીજું સ્વરૂપ માત્ર નમસ્કારને યોગ્ય છે, સેવાને યોગ્ય નથી.  
+* **Lipi:** Ane śrīkṛṣṇa nuṁ svarūpa āchāryē arpaṇ karyēluṁ athavā jē pratiṣṭhit svarūpa hoy tē j sēvavūṁ, bījuṁ svarūpa mātra namaskār nē yōgya chē, sēvā nē yōgya nathī.  
+* **English:** Only worship the idol of Shree Krishna Bhagwan given or installed by the Acharya. Other idols are worthy of respect and bowing but are not to be worshiped.
+
+**63.**  
+* **Gujarati:** અને આપણા આશ્રિત સત્સંગીઓએ રોજ સાંજે ભગવાનના મંદિરમાં જઈને શ્રીકૃષ્ણના કીર્તન કરવાં.  
+* **Lipi:** Ane āpṇā āśrita satsaṅgī'ōē rōj sāṅje bhagvān nā mandirmāṁ jaīne śrīkṛṣṇa nā kīrtana karvā.  
+* **English:** Devotees shall visit the temple daily in the evening and sing kirtans in praise of Shree Krishna Bhagwan.
+
+**64.**  
+* **Gujarati:** અને શ્રીકૃષ્ણ ભગવાનની કથા વાતાઓ આદરથી કરવી અને સાંભળવી અને ઉત્સવના દિવસે શંકમાંથી કીર્તન કરવા.  
+* **Lipi:** Ane śrīkṛṣṇa bhagvān nī kathā vātā'ō ādar thī karvī ane sāṅbhaḷvī ane utsav nā divasē śaṅkāthī kīrtana karavā.  
+* **English:** Devotees shall respectfully recite and listen to the stories of Shree Krishna Bhagwan and perform kirtans with musical accompaniment on festive occasions.
+
+**65.**  
+* **Gujarati:** અને શાસ્ત્રોનું નિયમિત અભ્યાસ કરવો અને જે ભાષામાં શાસ્ત્ર લખાયેલું હોય તે ભાષા શીખવી.  
+* **Lipi:** Ane śāstrōnuṁ niyamit abhyāsa karvō ane jē bhāṣāmāṁ śāstra lakhāyuṁ hoy tē bhāṣā śīkhvī.  
+* **English:** Devotees shall regularly study scriptures and learn the language in which the scriptures are written.
+
+**66.**  
+* **Gujarati:** અને જેવું ગુણ ધરાવતો હોય તેવા કર્મ માટે મનુષ્યને પ્રેરિત કરવો પણ જે કૃત્ય યોગ્ય ન હોય તે માટે ક્યારેય પ્રેરિત ન કરવો.  
+* **Lipi:** Ane jēvuṁ guṇa dharāvatō hoy tēvā karma māṭē manuṣyanē prērit karvō paṇa jē kr̥tya yōgya nā hoy tē māṭē kyārē prērit na karvō.  
+* **English:** One should assign work to a person according to their capabilities and not encourage actions that are inappropriate.
+
+**67.**  
+* **Gujarati:** અને પોતાના સેવકોને તેમનાં યથાયોગ્ય ભોજન અને વસ્ત્રની વ્યવસ્થા કરવી.  
+* **Lipi:** Ane potānā sēvakōnē tēmnā yathāyōgya bhōjana ane vastra nī vyavasthā karvī.  
+* **English:** Devotees shall ensure proper arrangements for the food and clothing of their servants according to their requirements.
+
+
 
 
