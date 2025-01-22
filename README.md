@@ -1,4 +1,4 @@
-## Shikshapatri
+# Shikshapatri
 
 **1.**  
 * **Gujarati:** હું જે તે મારા હૃદયને વિષે શ્રીકૃષ્ણ ભગવાનનું ધ્યાન કરું છું; તે શ્રીકૃષ્ણ કેવા છે, તો – જેના ડાબા પડખાને વિષે રાધિકાજી રહ્યાં છે અને જેના વક્ષઃ સ્થળને વિષે લક્ષ્મીજી રહ્યાં છે અને વૃંદાવનને વિષે વિહારના કરનારા છે.  
@@ -135,3 +135,74 @@
 * **Gujarati:** અને ચોર, પાપી, વ્યસની, પાખંડી, કામી તથા કિમિયા આદિક ક્રિયાએ કરીને જેને ઠગનારો એ છ પ્રકારના જે મનુષ્ય તેનો સંગ ન કરવો.  
 * **Lipi:** Ane cōra, pāpī, vyasanī, pākhaṇḍī, kāmī tathā kimi'yā ādika kriyāē karīnē jenē ṭhagōnā ē chha prakāranā je manuṣya tēmanō saṅga nā karvō.  
 * **English:** And one shall never maintain company with 6 types of people: thieves, sinners, addicts, hypocrites, lustful persons, and such other deceitful individuals.
+
+**28.**  
+* **Gujarati:** અને જે મનુષ્ય ભક્તિનું અથવા જ્ઞાનનું આલંબન કરીને સ્ત્રી, દ્રવ્ય અને રસાસ્વાદને વિષે અતિશય લોલુપ થઇ પાપને વિષે પ્રવર્તતા હોય તે મનુષ્યનો સમાગમ ન કરવો.  
+* **Lipi:** Ane je manuṣya bhaktinuṁ athavā gñānanuṁ ālambana karīnē strī, dravya ane rasāsvād tene visē atiśaya lōlupa thī pāpane visē pravartatā hoy tē manuṣyanō samāgama nā karvō.  
+* **English:** And one shall never have relations with any person who preaches religion or practices bhakti of Bhagwan as an excuse to seek wealth, women, or worldly pleasures, and commits sin.
+
+**29.**  
+* **Gujarati:** અને જે શાસ્ત્રને વિષે શ્રીકૃષ્ણ ભગવાન તથા શ્રીકૃષ્ણ ભગવાનના જે અવતાર તેમનું યુક્તિએ કરીને ખંડન કર્યુ હોય તેવા શાસ્ત્ર ક્યારેય ન માનવા અને ન સાંભળવા.  
+* **Lipi:** Ane je śāstrane visē śrīkṛṣṇa bhagvān tathā śrīkṛṣṇa bhagvān nā avatār temnuṁ yuktiē karīnē khandaṇa karyu hoy ēva śāstra kyārē nā mānavā ane nā sāṅbhaḷavā.  
+* **English:** And one shall never listen to or believe shastras where the existence of Shree Krishna Bhagwan and his avatars have been skillfully and deceitfully denied or degraded.
+
+**30.**  
+* **Gujarati:** અને ગાળ્યા વિના જે જળ તથા દૂધ તે ન પીવું અને જે જળમાં ઝીણા જીવ ઘણા હોય તે જળથી સ્નાનાદિક ક્રિયા ન કરવી.  
+* **Lipi:** Ane gāḷyā vinānuṁ je jala tathā dūdha tē nā pīvuṁ ane je jalanē visē jhīṇā jīva ghaṇā hoy tē jalē karīnē snānādika kriyā nā karvī.  
+* **English:** And one shall never drink unfiltered water or milk, nor bathe with water which contains many organisms.
+
+**31.**  
+* **Gujarati:** અને જે ઔષધમાં દારૂ તથા માંસ તણે યુક્ત હોય તે ઔષધ ક્યારેય ન ખાવું અને જે વૈદ્યના આચરણને જાણતા ન હોઈએ તે વૈદ્ય આપેલું ઔષધ તે પણ ક્યારેય ન ખાવું.  
+* **Lipi:** Ane je auṣadha māṁ dārū tathā māṁsa tēṇe yukta hoy tē auṣadha kyārē nā khāvuṁ ane vaḷī je vaidyana ācharaṇne jāṇatā nahīē tē vaidyē āpēluṁ je auṣadha tē paṇa kyārē nā khāvuṁ.  
+* **English:** And one shall never take any medicine which contains alcohol or meat and extract of any living being, nor take medicine from an unknown Vaidya (doctor).
+
+**32.**  
+* **Gujarati:** અને લોકને શાસ્ત્ર તમેણે મંજૂર એવા સ્થાનકે મલમૂત્ર ન કરવું તથા થૂકવું પણ નહીં.  
+* **Lipi:** Ane lōkanē śāstra temane manjūr ēvā sthānkē malamūtra na karvūṁ tathā thūnkavūṁ paṇa nahī.  
+* **English:** And one shall never excrete, urinate, or spit in places that are prohibited by shastras and societal norms.
+
+**33.**  
+* **Gujarati:** અને ચોર માર્ગે કરીને પ્રવેશવું નહીં અને નીકળવું પણ નહીં અને જે સ્થાન ધણીયાતું હોય તે સ્થળે તેના ધણીને પૂછ્યા વિના ઉતારો ન કરવો.  
+* **Lipi:** Ane cōra mārgē karīnē praveśavūṁ nahi ane nikalavūṁ paṇa nahi ane je sthān dhaṇiyātuṁ hoy tē sthānkē tēnā dhaṇine pūchyā vinā utārō na karvō.  
+* **English:** And one shall never enter or exit through an unusual way and shall not occupy any private property without the permission of its owner.
+
+**34.**  
+* **Gujarati:** અને અમારા સત્સંગી પુરુષ માત્રે બાઈ માણસના મુખેથી જ્ઞાનવાતાઓ ન સાંભળવી અને સ્ત્રીઓ સાથે વિવાદ ન કરવો તથા રાજા તથા રાજાના માણસો સાથે વિવાદ ન કરવો.  
+* **Lipi:** Ane amārā satsaṅgī puruṣa mātrē bā’ī māṇasana mukhēthī gñān vātā'ō nā sāṅbhaḷavī ane strī'ō sāthē vivāda nā karvō tathā rājā tathā rājānā māṇasō sāthē vivāda nā karvō.  
+* **English:** And my male disciples shall never listen to the religious discourses given by females, nor enter into arguments with females, rulers, and courtiers.
+
+**35.**  
+* **Gujarati:** અને ગુરુનું અપમાન ન કરવું તથા જે અતિશય શ્રેષ્ઠ મનુષ્ય હોય તથા જે વિદ્વાન મનુષ્ય હોય તેમનું અપમાન ન કરવું.  
+* **Lipi:** Ane gurunuṁ apamāna na karvūṁ tathā je atiśaya śrēṣṭha manuṣya hoy tathā je vidvāna manuṣya hoy temnuṁ apamāna na karvūṁ.  
+* **English:** And one shall never insult a Guru, dignified persons, and scholars who are respected in society.
+
+**36.**  
+* **Gujarati:** અને વિચારી વિના તત્કાળ કોઈ કાર્ય ન કરવું અને ધર્મ સંબંધિત જે કાર્ય તે તો તત્કાળ કરવું અને પોતે જે વિદ્યા ભણ્યા હોઈએ તે બીજાને ભણાવવી અને નિત્ય પ્રત્યે સાધુનો સમાગમ કરવો.  
+* **Lipi:** Ane vichāryā vinā tatkāl kō’ī kārya na karvūṁ ane dharma sambandhit je kārya te tō tatkāl karvūṁ ane potē je vidyā bhaṇyā hoy te bījānē bhaṇāvavī ane nitya pratyē sādhu nō samāgam karvō.  
+* **English:** And one shall never perform duties pertaining to social affairs without careful consideration, whereas duties related to Dharma shall be performed immediately. Those who are learned shall impart their knowledge to others and regularly associate with Sadhus.
+
+**37.**  
+* **Gujarati:** અને ગુરુ, દેવ અને રાજા એ ત્રણના દર્શનને માટે જ્યારે જવું ત્યારે ખાલી હાથે ન જવું અને કોઈનો વિશ્વાસઘાત ન કરવો અને પોતાના મુખે કરીને પોતાના વખાણ ન કરવો.  
+* **Lipi:** Ane gurū, dev ane rājā ē traṇnā darśanē māṭē jyārē javuṁ tyārē khālī hāthē na javuṁ ane kō’ī nō viśvāsaghāt na karvō ane potānā mukhē karīnē potānā vakhāṇ na karvō.  
+* **English:** And one shall never visit a Guru, a Devata, or a King empty-handed. One shall never breach trust and shall avoid boasting about oneself.
+
+**38.**  
+* **Gujarati:** અને જે વસ્ત્ર પહેરવાથી પણ પોતાના અંગ દેખાય તેવું જે ભદ્રું વસ્ત્ર તે અમારા સત્સંગી તેમને ન પહેરવું.  
+* **Lipi:** Ane je vastra pahēravāthī paṇa potānā aṅga dēkhāy tēvuṁ je bhadruṁ vastra te amārā satsaṅgī tēmanē na pahēravūṁ.  
+* **English:** And my aashrits shall never wear such clothes that expose their body, such as transparent, overly tight, or short garments.
+
+**39.**  
+* **Gujarati:** અને શ્રીકૃષ્ણ ભગવાનની ભક્તિ તે ધર્મરહિત એવી કોઈ પ્રકારે ન કરવી અને અજ્ઞાની એવા જે મનુષ્ય દ્વારા નિંદાના ભય થકી શ્રીકૃષ્ણ ભગવાનની સેવા ન ત્યજવી.  
+* **Lipi:** Ane śrīkṛṣṇa bhagvānni bhakti tē dharmarahit ēvī kō’ī prakārē na karvī ane ajñānī ēvā je manuṣya dvārā nindānā bhay thakī śrīkṛṣṇa bhagvānni sēvā na tyajavī.  
+* **English:** And one shall never practice bhakti of Shree Krishna Bhagwan without observing Dharma, nor shall one give up the seva of Shree Krishna Bhagwan out of fear of criticism from ignorant individuals.
+
+**40.**  
+* **Gujarati:** અને ઉત્સવના દિવસને વિષે તથા નિત્ય પ્રત્યે શ્રીકૃષ્ણના મંદિરમાં આવ્યા એવા પુરુષ સત્સંગી તે મંદિરમાં સ્ત્રીઓના સ્પર્શ ન કરે તથા સ્ત્રીઓ પુરુષનો સ્પર્શ ન કરે અને મંદિરમાંથી નીસરે પછી પોતપોતાની રીતે વર્તવું.  
+* **Lipi:** Ane utsavanā divasne vishe tathā nitya pratyē śrīkṛṣṇnā mandirmāṁ āvyā ēvā puruṣ satsaṅgī tē mandirmāṁ strī’ōnō sparśa na karē tathā strī’ō puruṣnō sparśa na karē ane mandirmāṁthī nisaryā pachī potāpotānī rītē vartavūṁ.  
+* **English:** On festive days or during regular visits to the mandir of Shree Krishna Bhagwan, male devotees shall not touch women, nor shall women touch men. After exiting the mandir, they shall follow their respective conduct.
+
+**41.**  
+* **Gujarati:** અને ધર્મવંશી ગુરુથી શ્રીકૃષ્ણની દીક્ષા પ્રાપ્ત કર્યા એવા બ્રાહ્મણ, ક્ષત્રિય અને વૈશ્ય ત્રણ વર્ણના અમારા સત્સંગી તેમણે તુલસીની બેવડી માળા નિત્યે ધારવી અને લલાટ, હૃદય તથા બે હાથમાં ઊર્ધ્વપુંડ્ર તિલક કરવું.  
+* **Lipi:** Ane dharmavaṁśī guruthī śrīkṛṣṇnī dīkṣā prāpt karyā ēvā brāhmaṇa, kṣatriya ane vaiśya traṇ varṇnā amārā satsaṅgī tēmanē tulasīnī bēvaḍī māḷā nityē dhārvī ane lalaṭa, hṛdaya tathā bē hāthmā ūrdhvapuṇḍra tilaka karvūṁ.  
+* **English:** All devotees of the Brahmin, Kshatriya, and Vaishya varnas who have received diksha from the Acharya shall always wear a two-fold Tulsi kanthi around their neck and mark their forehead, chest, and both arms with a Urdhva Pundra Tilak.
+
