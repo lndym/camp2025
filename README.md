@@ -206,3 +206,90 @@
 * **Lipi:** Ane dharmavaṁśī guruthī śrīkṛṣṇnī dīkṣā prāpt karyā ēvā brāhmaṇa, kṣatriya ane vaiśya traṇ varṇnā amārā satsaṅgī tēmanē tulasīnī bēvaḍī māḷā nityē dhārvī ane lalaṭa, hṛdaya tathā bē hāthmā ūrdhvapuṇḍra tilaka karvūṁ.  
 * **English:** All devotees of the Brahmin, Kshatriya, and Vaishya varnas who have received diksha from the Acharya shall always wear a two-fold Tulsi kanthi around their neck and mark their forehead, chest, and both arms with a Urdhva Pundra Tilak.
 
+**42.**  
+* **Gujarati:** અને તે તિલક ગોપીચંદનથી કરવું અથવા ભગવાનની પૂજા કરતા બાકી રહેલું કેસર કુંકુમ આદિ યુક્ત પ્રસાદી ચંદનથી તિલક કરવું.  
+* **Lipi:** Ane te tilak gopīchandanthī karvū athavā bhagvānni pūjā kartā bākī rahēluṁ kēsar kuṅkum ādik yukta prasādī chandanthī tilak karvūṁ.  
+* **English:** And the tilak shall be made with Gopichandan or with consecrated sandal paste mixed with kumkum and saffron that has been offered to Bhagwan.
+
+**43.**  
+* **Gujarati:** અને તે તિલકના મધ્યમાં જે ગોળ એવો ચાંદલો તે ગોપીચંદનથી કરવો અથવા રાધિકાજી અને લક્ષ્મીજી તણે પ્રસાદીનું જે કુંકુમથી ચાંદલો કરવો.  
+* **Lipi:** Ane te tilaknā madhyamā je gōḷa ēvo chāndalo te gopīchandanthī karvō athavā rādhikājī ane lakṣmījī tēnuṁ prasādī jē kuṅkumthī chāndalo karvō.  
+* **English:** In the center of the tilak, one shall make a round chandlo either with Gopichandan or kumkum that has been offered to Radhikaji or Laxmiji.
+
+**44.**  
+* **Gujarati:** અને પોતાના ધર્મને વિષે રહ્યા અને શ્રીકૃષ્ણના ભક્ત એવા સતશૂદ્રે તુલસીની માળા અને ઊર્ધ્વપુંડ્ર તિલક તે બ્રાહ્મણ, ક્ષત્રિય, વૈશ્યની જેમ ધારવું.  
+* **Lipi:** Ane potānā dharmane vishe rahyā ane śrīkṛṣṇnā bhakta ēvā satśūdrē tulasīnī māḷā ane ūrdhvapuṇḍra tilak te brāhmaṇa, kṣatriya, vaiśya nī jēme dhārvūṁ.  
+* **English:** And Sat-Shudras (virtuous Shudras) who are bhaktas of Shree Krishna Bhagwan shall wear a Tulsi kanthi and Urdhva Pundra tilak like the Brahmins, Kshatriyas, and Vaishyas.
+
+**45.**  
+* **Gujarati:** અને તે સતશૂદ્ર દ્વારા બીજા જે જાતીએ ઉતરતા ભક્તોએ ચંદન આદિક કાષ્ઠની બેવડી માળા ભગવાનની પ્રસાદી કરાવીને પહેરવી અને માત્ર ચાંદલો કરવો, તિલક ન કરવું.  
+* **Lipi:** Ane te satśūdra dvārā bījā je jātīē utartā bhaktaōē chandana ādik kāṣṭhanī bēvaḍī māḷā bhagvānni prasādī karāvīnē dhārvī ane mātra chāndalo karvō, tilak na karvō.  
+* **English:** And devotees belonging to castes lower than Sat-Shudras shall wear a sanctified Tulsi or sandalwood kanthi and shall only apply a chandlo, not a tilak.
+
+**46.**  
+* **Gujarati:** અને બ્રાહ્મણાદિકને ત્રિપુંડ જેવું આડું તિલક કરવું તથા રુદ્રાક્ષની માળા ધારવી—એ બંને પોતાના કુળ પરંપરાએ કરી ચલ્યા હોય અને તે બ્રાહ્મણાદિક અમારા આશ્રિત થયા હોય તો પણ તેમણે તે ત્રિપુંડ અને રુદ્રાક્ષનો ક્યારેય ત્યાગ ન કરવો.  
+* **Lipi:** Ane brāhmaṇādiknē tripuṁḍ je āḍuṁ tilak karvū tathā rudrākṣnī māḷā dhārvī—ē bēnē potānī kuḷ-paranparāē karī chalyā hoy ane te brāhmaṇādik amārā āśrit thayā hoy tō paṇa tēne tē tripuṁḍ ane rudrākṣnō kyārēya tyāg na karvō.  
+* **English:** Brahmins and others who have traditionally worn a Tripund (three horizontal lines on the forehead) and Rudraksha mala due to family customs shall continue to do so even after becoming devotees of the satsang.
+
+**47.**  
+* **Gujarati:** અને નારાયણ અને શિવજી એ બંનેને એકાત્મપણે જ જાણવું, કેમ કે વેદમાં એમને બ્રહ્મરૂપે પ્રતિપાદિત કરાયા છે.  
+* **Lipi:** Ane nārāyaṇa ane śivajī ē bēnē ekātmapaṇe j jāṇvū, kema ke vēdmā emnē brahmrūpē pratipādit karyā chē.  
+* **English:** One shall regard Narayan and Shivji as one, as they are both established as Brahmaswaroop (divine forms of Brahman) in the Vedas.
+
+**48.**  
+* **Gujarati:** અને અમારા આશ્રિત મનુષ્યએ શાસ્ત્રએ કહ્યું તે આપદધર્મ, તે અલ્પ આપત્તિકાળમાં પણ મુખ્યપણે ક્યારેય ગ્રહણ ન કરવો.  
+* **Lipi:** Ane amārā āśrita manuṣyanē śāstrē kahyuṁ tē āpadadharma, tē alpa āpattikāl mā paṇa mukhyapaṇe kyārē grahaṇa na karvō.  
+* **English:** Devotees shall not adopt Apad Dharma (temporary flexibility permitted during calamities) unless absolutely necessary, even in minor adversities.
+
+**49.**  
+* **Gujarati:** અને અમારા સત્સંગી નિત્યે સૂર્ય ઉગ્યા પહેલા જ જાગવું અને શ્રીકૃષ્ણ ભગવાનનું સ્મરણ કરીને પછી શૌચ વિધિ કરવી.  
+* **Lipi:** Ane amārā satsaṅgī nityē sūrya ugyā pehlā j jāgvūṁ ane śrīkṛṣṇ bhagvānnuṁ smaraṇa karīnē pachī śaucha vidhī karvī.  
+* **English:** All devotees shall wake up daily before sunrise, meditate upon Shree Krishna Bhagwan, and then perform morning ablutions.
+
+**50.**  
+* **Gujarati:** અને પછી એક સ્થળે બેસીને દાતણ કરવું અને પછી પવિત્ર જળથી સ્નાન કરીને ધોયેલું એક વસ્ત્ર પહેરવું અને એક ઓઢવું.  
+* **Lipi:** Ane pachhī ek sthānē bēsīnē dātaṇ karvūṁ ane pachhī pavitra jalthī snān karīnē dhōyelūṁ ek vastra pahērvūṁ ane ek ōḍhavūṁ.  
+* **English:** Then they shall sit in one place and brush their teeth, bathe with clean water, and wear one washed cloth around their waist and another around their shoulders.
+
+**51.**  
+* **Gujarati:** અને પછી પવિત્ર ધરતી પર પાથરેલું શૃદ્ધ આસન, જે પર બીજા આસન અડતા ન હોય, એ પર પૂર્વમુખે અથવા ઉત્તરમુખે બેસીને આચમન કરવું.  
+* **Lipi:** Ane pachhī pavitra dhartī par pātharelūṁ śuddha āsana, je par bījā āsana aḍtā n hōy, ē par pūrvamukhē athavā uttaramukhē bēsīnē āchaman karvūṁ.  
+* **English:** They shall then sit on a clean seat spread on pure ground, ensuring no other items touch it, facing east or north, and perform āchaman (a purification ritual).
+
+**52.**  
+* **Gujarati:** અને પછી સત્સંગી પુરુષો તિલક ચાંદલો કરવું અને સવાસિની સ્ત્રીઓ કુંકુમનો ચાંદલો કરવો.  
+* **Lipi:** Ane pachhī satsaṅgī puruṣō tilak chāndalo karvūṁ ane suvāsinī strī'ō kuṅkumnō chāndalo karvō.  
+* **English:** Male devotees shall apply a tilak with a chandlo, while married women shall apply a chandlo with kumkum.
+
+**53.**  
+* **Gujarati:** અને વિધવા સ્ત્રીઓએ તિલક કે ચાંદલો ન કરવો, અને તે પછી મન કરીને શ્રીકૃષ્ણ ભગવાનની માનસી પૂજા કરવી.  
+* **Lipi:** Ane vidhvā strī'ōe tilak ke chāndalo na karvō, ane tē pachhī man karīnē śrīkṛṣṇa bhagvān nī mānasī pūjā karvī.  
+* **English:** Widows shall not apply tilak or chandlo but shall perform mansi puja (mental worship) of Shree Krishna Bhagwan with devotion.
+
+**54.**  
+* **Gujarati:** અને પછી શ્રીરાધાકૃષ્ણ ભગવાનની પ્રતિમાને માનથી નમસ્કાર કરીને પોતાના સામર્થ્ય પ્રમાણે અષ્ટાક્ષર મંત્રનો જપ કરવો.  
+* **Lipi:** Ane pachhī śrīrādhākṛṣṇa bhagvān nī pratimāne mān thī namaskār karīnē potānā sāmarthya pramāṇē aṣṭākṣara mantrano jap karvō.  
+* **English:** They shall then bow respectfully to the idol of Shree Radha-Krishna Bhagwan and recite the Ashtaakshar Mantra as per their ability.
+
+**55.**  
+* **Gujarati:** જે અમારાં સત્સંગમાં અંબરીષ રાજાની પીઠે આત્મનિવેદી ભક્ત હોય તેમણે પણ પૂર્વે કહેલી રીત પ્રમાણે માનસી પૂજા કરવી.  
+* **Lipi:** Je amārā satsaṅgmāṁ ambarīṣ rājānī pīṭhē ātmnivēdī bhakta hoy, tēmanē paṇa pūrvē kahelī rīt pramāṇē mānasī pūjā karvī.  
+* **English:** Devotees who are Atmanivedi (completely dedicated) like King Ambarish shall also perform mansi puja as described earlier.
+
+**56.**  
+* **Gujarati:** અને પાષાણ કે ધાતુની જે શ્રીકૃષ્ણ ભગવાનની પ્રતિમા હોય અથવા શાલિગ્રામની પૂજા દેશકાળને અનુરૂપ કરીને કરવી.  
+* **Lipi:** Ane pāṣāṇ ke dhātunī je śrīkṛṣṇa bhagvān nī pratimā hoy athavā śāligram nī pūjā deśakāl ne anurūp karīnē karvī.  
+* **English:** They shall worship the idol of Shree Krishna Bhagwan made of stone or metal, or a Shaligram, according to time and circumstances.
+
+**57.**  
+* **Gujarati:** અને શ્રીકૃષ્ણના સ્તોત્ર અથવા ગ્રંથના પાઠ કરવાં અથવા સંગીતમાં કીર્તન કરવું.  
+* **Lipi:** Ane śrīkṛṣṇa nā stotra athavā granth nā pāṭha karvā athavā saṅgīt māṁ kīrtana karvūṁ.  
+* **English:** They shall recite stotras (hymns) or scriptures of Shree Krishna, or sing kirtans with devotion.
+
+**58.**  
+* **Gujarati:** અને પછી શ્રીકૃષ્ણ ભગવાનને નૈવેદ્ય અર્પણ કરી તેનો પ્રસાદ ગ્રહણ કરવો અને ભગવાનની સેવા પરાયણ રહેવું.  
+* **Lipi:** Ane pachhī śrīkṛṣṇa bhagvān ne naivedya arpaṇ karī tēno prasād grahaṇa karvō ane bhagvān nī sevā parāyaṇa rahēvūṁ.  
+* **English:** They shall offer naivedya (food offering) to Shree Krishna Bhagwan, consume the prasad, and remain engaged in His service with devotion.
+
+
+
