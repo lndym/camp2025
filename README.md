@@ -181,3 +181,98 @@
 * **Lipi:** Anē potānā svārthanī siddhinē arthē paṇa kō’īna para mithyā apavāda ārōpaṇa na karvō anē kō'īnē gāḷa tō kyārē na dēvī.
 
 * **English:** And for one's selfish desires, one shall never falsely accuse anyone, nor shall one ever use foul language against anyone.
+
+  
+---
+
+**21.**  
+* **Gujarati:** અને દેવતા, તીર્થ, બ્રાહ્મણ, પતિવ્રતા, સાધુ અને વેદ એમની નિંદા ક્યારેય ન કરવી અને ન સાંભળવી.
+
+* **Lipi:** Anē dēvatā, tīrtha, brāhmaṇa, pativrata, sādhu anē vēda ēmanī nindā kyarya na kārvī anē na sāṅbhaḷavī.
+
+* **English:** And one shall never defame Devata, tirthstan, Brahmins, devoted wives, holy persons, and the shastra, nor should one listen to such slander.
+
+---
+
+**22.**  
+* **Gujarati:** જે દેવતાને સુરા અને માંસનું નૈવેદ્ય થતું હોય અને વળી જે દેવતાની આગળ બકરા આદિક જીવની હિંસા થતી હોય તે દેવતાનું નૈવેદ્ય ન ખાવું.
+
+* **Lipi:** jē dēvatānē surā anē māṁsanuṁ nai'ēvēdya thatuṁ hōy anē vaḷī jē dēvatānī āgaḷa bakarā ādika jīvanī hinsā thatī hōy tē dēvatānuṁ nai'ēvēdya na khāvuṁ.
+
+* **English:** And one shall never accept the prasad of those deities to whom wine and flesh are offered and before whom goats and such other animals are slaughtered. 
+
+---
+
+**23.**  
+* **Gujarati:** અને માર્ગને વિષે ચાલતે શિવાલયાદિક જે દેવમંદિર આવે તેને જોઈને તેને નમસ્કાર કરવો અને આદર થકી તે દેવનું દર્શન કરવું.
+
+* **Lipi:** Anē mārganē visē cālatē śivālayādika jē dēvamandira āvē tēnē jōinē tēnē namaskāra karvō anē ādara thakī tē dēvanuṁ darśana karvō
+
+* **English:** And when passing by the mandir of Shree Shiv Bhagwan and other Devata, one shall bow to them and pay due respect to the devata inside.
+
+---
+
+**24.**  
+* **Gujarati:** અને પોતપોતાના વર્ણાશ્રમનો જે ધર્મ તે કોઈ સત્સંગીએ ત્યાગ ન કરવો ને પરધર્મનું આચરણ ન કરવું. તથા પાખંડ ધર્મનું આચરણ ન કરવું તથા કલ્પિત ધર્મનું આચરણ ન કરવું.
+
+* **Lipi:** Anē potapōtānā varṇāśramanō jē dharma tē kō'ī satsaṅgīē tyāga na karvō nē paradharmanuṁ ācaraṇa na karvō. Tathā pākhaṇḍa dharmanuṁ ācaraṇa na karvō anē kalpita dharmanuṁ ācaraṇa na karvō.
+
+* **English:** And one shall never abandon one’s own duties as ordained by one’s own varna (caste) and ashram (stage of life) nor follow a course of conduct prescribed for others nor follow any faith that is pretentious or fictitious.
+
+---
+
+**25.**  
+* **Gujarati:** અને જેના વચનને સાંભળવે કરીને શ્રીકૃષ્ણ ભગવાનની ભક્તિને પોતાનો ધર્મ એ બે થકી પડી જવાય તેનાં મુખ થકી ભગવાનની કથા-વાર્તા ન સાંભળવી.
+
+* **Lipi:** Anē jēnā vachanē sāṅbhaḷavē karīnē śrīkṛṣṇa bhagavānani bhakti nē potānō dharma ē bē thakī paḍī javāyē tēnāṁ mukha thakī bhagavānani kathāvārtā nē sāṅbhaḷavī. 
+
+* **English:** And one shall never listen to any religious discourses from a person whose preaching might lead one away from the bhakti of Shree Krishna Bhagwan or one’s dharma.
+
+---
+
+**26.**  
+* **Gujarati:** અને જે સત્ય વચન બોલવે કરીને પોતાનો દ્રોહ થાય તથા પારકો દ્રોહ થાય એવું જે સત્ય વચન તે ક્યારેય ન બોલવું, અને જે કૃત્ધની હોય તેના સંગનો ત્યાગ કરવો અને વ્યવહાર કાર્યને વિષે કોઈની લાંચ ન લેવી.
+
+* **Lipi:** Anē jē satya vacana bōlavē karīnē potānō drōha thāya tathā pārakō drōha thāya ēvuṁ jē satya vacana tē kyārē nā bōlavuṁ, anē jē kr̥tdhanī hōy tēnā saṅganō tyāga karvō anē vyavahāra kāryanē visē kō'īnī lān̄ca nā lēvī. 
+
+* **English:** And one shall never speak such truth which might bring harm to oneself or others, nor keep the company of ungrateful people, nor take any bribe from anyone in social affairs. 
+
+---
+
+**27.**  
+* **Gujarati:**  અને ચોર, પાપી, વ્યસની, પાખંડી, કામી તથા કિમિયા આદિક ક્રિયાએ કરીને જનનો ઠગનારો એ છ પ્રકારના જે મનુષ્ય તેમનો સંગ ન કરવો.
+
+
+* **Lipi:** Anē cōra, pāpī, vyasanī, pākhanḍī, kāmī tathā kimi'yā ādika krīyāē karīnē jananō ṭhagōnā ē chha prakāranā jē manuṣya tēmanō saṅga nā karvō.
+
+* **English:** And one shall never maintain company of 6 types of people like thieves, sinners, addicts, hypocrites, lustful and such other deceitful persons.
+
+---
+
+**28.**  
+
+* **Gujarati:**  અને જે મનુષ્ય ભક્તિનું અથવા જ્ઞાનનું આલંબન કરીને સ્ત્રી, દ્રવ્ય અને રસાસ્વાદ તેને વિષે અતિશય લોલુપથકા પાપને વિષે પ્રવર્તતા હોય તે મનુષ્યનો સમાગમ ન કરવો.
+
+* **Lipi:** Anē jē manuṣya bhaktinuṁ athavā gñānanuṁ ālambana karīnē strī, dravya anē rasāsvāda tēnē visē atiśaya lōlupa thakā pāpanē visē pravartatā hōy tē manuṣyanō samāgama nā karvō. 
+
+* **English:** And one shall never have relations with any person who preaches religion or practices bhakti of Bhagwan as an excuse to seek wealth, women, or worldly pleasures, and commits sin.
+
+---
+
+**29.**  
+
+* **Gujarati:**  અને જે શાસ્ત્રને વિષે શ્રીકૃષ્ણ ભગવાન તથા શ્રીકૃષ્ણભગવાનના જે વરાહાદિક અવતાર તેમનું યુક્તિએ કરીને ખંડન કર્યુ હોય એવા જે શાસ્ત્ર તે ક્યારેય ન માનવા અને ન સાંભળવા.
+
+* **Lipi:** Anē jē śāstranē visē śrīkṛṣṇa bhagavāna tathā śrīkṛṣṇabhagavānana jē varāhādika avatāra tēmanuṁ yuktiē karīnē khandaṇa karyu hōy ēva jē śāstra tē kyārē nā mānavā anē nā sāṅbhaḷavā. 
+
+* **English:** And one shall never listen to or believe shastras where the existence of Shree Krishna Bhagwan and his avatars have been skilfully and deceitfully denied or degraded. 
+
+---
+
+**30.**  
+
+* **Gujarati:**  અને ગાળ્યા વિનાનું જે જળ તથા દૂધ તે ન પીવું અને જે જળને વિષે ઝીણા જીવ ઘણા હોય તે જળે કરીને સ્નાનાદિક ક્રિયા ન કરવી.
+
+* **Lipi:** Anē gāḷyā vinānuṁ jē jala tathā dūdha tē nā pīvuṁ anē jē jalanē visē jhīṇā jīva ghaṇāṁk hōy tē jalē karīnē snānādika krīyā nā karvī.
+
+* **English:** And one shall never drink unfiltered water or milk nor bathe with water which contains many organisms. 
