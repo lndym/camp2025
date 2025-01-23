@@ -92,6 +92,7 @@
 
   
 ---
+
 **11.**  
 * **Gujarati:** હવે તે વર્ત્યાની રીત કહીએ છીએ જે – અમારા જે સત્સંગી તેમણે કોઈ જીવ-પ્રાણી-માત્રની પણ હિંસા ન કરવી અને જાણીને તો ઝીણા એવા જુ, માંકડ, ચાંચડ આદિક જીવ તેમની પણ હિંસા ક્યારેય ન કરવી.
 
@@ -134,5 +135,49 @@
 
 * **English:** And under any circumstances, one shall not eat meat, even if it is in the form of prasad. Nor shall one drink liquor, wine or intoxicating beverages even though it may be an offering to a deity.
   
+
 ---
 
+**16.**  
+* **Gujarati:** અને ક્યારેક પોતાથી કાંઈક અયોગ્ય આચરણ થઈ ગયું હોય અથવા કોઈ બીજાથી અયોગ્ય આચરણ થઈ ગયું હોય તો શસ્ત્રાદિકે કરીને અથવા ક્રોધે કરીને પણ પોતાના અંગનું તથા બીજાના અંગનું છેદન ન કરવું .
+
+
+* **Lipi:** Anē kyārēk potāthi kāṅ'īk ayōgya ācaraṇ thayuṁ hōy athavā kō'ī bījāthi ayōgya ācaraṇ thayuṁ hōy tō śastrādikē karīnē athavā krōdhē karīnē paṇa potānā aṅganuṁ tathā bījānā aṅganuṁ chēdana na karvūṁ.
+
+* **English:** And no one shall ever harm or cut any part of one’s body or that of others with a weapon or by any other means because of any unworthy deed either by oneself or by others.
+
+---
+
+**17.**  
+* **Gujarati:** અને ધર્મ કરવાને અર્થે પણ અમારા સત્સંગીએ કોઈપણ ચોરીનું કર્મ ન કરવું. અને ધણિયાતું જે કાષ્ઠ, પુષ્પ, આદિક વસ્તુ તે તેના ધણીની આજ્ઞા વિના ન લેવું.
+
+* **Lipi:** Anē dharma karvānē arthē paṇa amārā satsaṅgī kō'īē cōranuṁ karma na karvūṁ. Anē dhaniyatunn jē kāṣṭha, puṣpa, ādika vastu tē tēnā dhaṇīnī āgñā vinā na lēvūṁ.
+
+* **English:** And one shall not commit theft, even for the sake of performing an act of Dharma. No article, even firewood, flowers etc., owned by others shall ever be taken without their owner’s permission.
+
+---
+
+**18.**  
+* **Gujarati:** અને અમારા આશ્રિત જે પુરૂષ તથા સ્ત્રીઓ તેમણે વ્યભિચાર ન કરવો અને જુગટું આદિક જે વ્યસન તેનો ત્યાગ કરવો અને ભાંગ, મફર, માજમ, ગાંજો એ આદિક જે કેફ કરનારાં વસ્તુ તે ખાવી નહી અને પીવી પણ નહી
+
+* **Lipi:** Anē amārā āśrita jē puruṣa tathā strī'ō tēmaṇē vyabhicāra na karvō anē jugatunuṁ jē vyasana tēnō tyāga karvō anē bhāṅga, maphara, mājama, gāṅjō ē ādika jē kepha karānārāṁ vastu tē khāvi nahī anē pīvi paṇ nahī.
+
+* **English:** And my aashrit, both men and women, should not commit adultery, nor should they consume or drink intoxicants such as bhang, opium, alcohol, and marijuana, as well as other intoxicating substances.
+
+---
+
+**19.**  
+* **Gujarati:** અને જેના હાથનું રાંધેલ અન્ન તથા જેના પાત્રનું જળ તે ખપતું ન હોય તેણે રાંધેલ અન્ન તથા તેના પાત્રનું જળ, તે શ્રીકૃષ્ણ ભગવાનની પ્રસાદી ચરણામૃતના માહાત્મ્યે કરીને પણ જગન્નાથપુરી વિના અન્ય સ્થાનકને વિષે ગ્રહણ ન કરવું અને જગન્નાથપુરીને વિષે જગન્નાથજીનો પ્રસાદ લેવાય તેનો દોષ નહિ
+
+* **Lipi:** Anē jēnā hāthanuṁ rāndhēla anna tathā jēnā pātranuṁ jala, tē khapatuṁ na hōy tēnē rāndhēla anna tathā tēnā pātranuṁ jala, tē śrīkṛṣṇa bhagavānani prasādī caraṇāmṛtana māhātmyē karīnē paṇa jagannāthapurī vinā anya sthānakanē viśē grahaṇa na karvūṁ anē jagannāthapurīnē viśē jagannāthajīnō prasāda lēvāya tēnō dōṣa nathi.
+
+* **English:** And one shall never accept food and water from any unknown person who is prohibited by holy scriptures, at any place, even if it is the Prasad except the Prasad at Jaganathpuri.
+
+---
+
+**20.**  
+* **Gujarati:**  અને પોતાના સ્વાર્થની સિદ્ધિને અર્થે પણ કોઈના પર મિથ્યા અપવાદ આરોપણ ન કરવો અને કોઈને ગાળ તો ક્યારેય ન દેવી. 
+
+* **Lipi:** Anē potānā svārthanī siddhinē arthē paṇa kō’īna para mithyā apavāda ārōpaṇa na karvō anē kō'īnē gāḷa tō kyārē na dēvī.
+
+* **English:** And for one's selfish desires, one shall never falsely accuse anyone, nor shall one ever use foul language against anyone.
