@@ -81,6 +81,8 @@
 
 * **English:** Those who violate the Rules of Ethics and act willfully with evil intentions shall endure significant distress both in this world and in Parlok (after death in Yampuri).
 
+---
+
 **10.**  
 * **Gujarati:** તે માટે અમારા શિષ્ય એવા જે તમે સર્વે તેમણે તો પ્રીતિએ કરીને આ શિક્ષાપત્રીને અનુસરીને જ નિરંતર સાવધાનપણે વર્તવું, પણ આ શિક્ષાપત્રીનું ઉલ્લંઘન કરીને વર્તવું નહિ.
 
@@ -96,13 +98,17 @@
 * **Lipi:** Have tē vartyānī rīti kahīē chie je – amārā je satsaṅgī temṇe koi jīva-prāṇi-mātraṇī paṇa hinsā na karvī ane jāṇīne to zhīṇā evā ju, māṅkaḍ, cāṅcaḍ ādika jīva temnī pan hinsā kyārē na karvī.
 
 * **English:** Now, I shall describe the way of living - my aashrit should not cause harm to any living being, such as lice, bed bugs, insects, etc., knowingly or unknowingly.
+
+
 ---
+
 **12.**  
 * **Gujarati:** અને દેવતા અને પિતૃ તેના યજ્ઞને અર્થે પણ બકરાં, મૃગલાં, સસલાં, માછલાં આદિક કોઈ જીવની હિંસા ન કરવી, કેમ જે અહિંસા છે તે જ મોટો ધર્મ છે એમ સર્વ શાસ્ત્રમાં કહ્યું છે.
 
 * **Lipi:** Anē devatā ane pitṛ tenā yajñne arthe pan bakarāṁ, mṛgalāṁ, sasalāṁ, mācalāṁ ādika ko'ī jīva-nī hinsā na karvī, kema je ahiṁsā che te je manuṣya pāḷe che tē manuṣya je tē ā lōkne viśe tathā paralōkne viśe mahādharma che ēm sarve śāstramāṁ kahyūṁ che
 
 * **English:** And for the deities and ancestors in their bali (sacrifices), no violence should be done to any living being, such as goats, deer, rabbits, fish, etc. This ahimsa (non-violence) is the highest dharma, as stated in all shastra.
+  
 ---
 **13.**  
 * **Gujarati:** અને સ્ત્રી, દ્રવ્ય અને રાજ્ય તેની પ્રાપ્તિને અર્થે પણ કોઈ મનુષ્યની હિંસા તો કોઈ પ્રકારે ક્યારેય પણ ન જ કરવી
@@ -110,6 +116,7 @@
 * **Lipi:** Anē strī, dhan ane rājya tenī prāpti ne arthe pan ko'ī manuṣya-nī himsā to ko'ī prakārē kyārē pan na karvī.
 
 * **English:** And a person should never commit himsa (violence) against anyone for the sake of obtaining women, wealth, or kingdom.
+  
 ---
 **14.**  
 * **Gujarati:** અને આત્મઘાત તો તીર્થને વિષે પણ ન કરવો, ને ક્રોધે કરીને ન કરવો, અને ક્યારેક કોઈ અયોગ્ય આચરણ થઈ જાય તે થકી મુંઝાઈને પણ આત્મઘાત ન કરવો અને ઝેર ખાઈને તથા ગળે ટુંપો ખાઈને તથા કૂવે પડીને તથા પર્વત ઉપરથી પડીને ઈત્યાદિક કોઈ રીતે આત્મઘાત ન કરવો.
@@ -117,12 +124,15 @@
 * **Lipi:** Anē ātma-ghāt to tīrthan ne viṣe pan na karvo, ne krodhē karīne pan na karvo, ane kyārē koi ayōgya ācharaṇ thāy te thakī muṁjhāīne pan ātma-ghāt na karvo, ane jēra khaine tatha gale tunpo khaine tatha kuve padine tatha parvat parti padine ityadi koi rite aatmaghat na karvo
 
 * **English:** And never commit self-harm by visiting (tirthsthan) sacred places, nor by anger, and even if one's conduct becomes improper, one should refrain from self-harm, by any means
+
 ---
+
 **15.**  
 * **Gujarati:** અને જે માંસ છે તે તો યજ્ઞનું શેષ હોય તો પણ આપત્કાળમાં પણ ક્યારેય ન ખાવું અને ત્રણ પ્રકારની સુરા અને અગિયાર પ્રકારનું મધ, તે દેવતાનું નૈવેદ્ય હોય તો પણ ન પીવું.
 
 * **Lipi:** Ane je maans chhe, te to yajṉṉuṁ shesh hoy to pan āpatkālmaṁ pan kyārēy n khāvu ane traṇ prakār-nī surā ane agiyāra prakār-nuṁ madh, te devtanu naivedya hoy to pan na pīvu.
 
 * **English:** And under any circumstances, one shall not eat meat, even if it is in the form of prasad. Nor shall one drink liquor, wine or intoxicating beverages even though it may be an offering to a deity.
+  
 ---
 
