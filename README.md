@@ -10,6 +10,7 @@
 * **English:** I (Sahajanand Swami) meditate, in my heart, upon Shree Krishna Bhagwan, on whose left stands Radhikaji, in whose heart resides Laxmiji and who plays (with His Bhaktas) in Vrindavan. 
 
 
+---
 
 **2.**  
 * **Gujarati:** અને વૃત્તાલય ગામને વિષે રહ્યા એવા સહજાનંદ સ્વામી જે અમે, તે અમે જે તે નાના પ્રકારના જે સર્વે દેશ તેમને વિષે  રહ્યા એવા જે અમારા આશ્રિત સર્વે સત્સંગી તે પ્રત્યે શિક્ષાપત્રીને લખીએ છીએ. 
@@ -18,6 +19,7 @@
 
 * **English:** I, Sahajanand Swami, write this Shikshapatri from Vadtal, to all my aashrit (devotees) who reside in different parts of the world 
 
+---
 
 **3.**  
 * **Gujarati:** શ્રી ધર્મદેવ થકી છે જન્મ જેમનો એવા જે અમારા ભાઈ રામપ્રતાપજી તથા ઈચ્છારામજી તેમના પુત્ર જે અયોધ્યાપ્રસાદ નામે અને રઘુવીર નામે (જેને અમે અમારા દત્તપુત્ર કરીને સર્વે સત્સંગીના આચાર્યપણાને વિષે સ્થાપન કર્યા છે.) 
@@ -26,6 +28,7 @@
 
 * **English:** My brothers, Rampratapji and Ichharamji, are both sons of Shree Dharmadev. I have adopted Rampratapji’s son, Ayodhyaprasad, and Ichharamji’s son, Raghuvir, as my sons and established them as the Acharyas of my satsangis. 
 
+---
 
 **4.**  
 * **Gujarati:** તથા અમારા આશ્રિત એવા જે મુકુંદાનંદ આદિક નૈષ્ઠિક બ્રહ્મચારી તથા અમારા આશ્રિત જે મયારામ ભટ્ટ આદિક ગૃહસ્થ સત્સંગી
@@ -34,6 +37,8 @@
 
 * **English:** And my aashrit, including Naisthik Brahmacharis (Virtuous celibates) like Mukundanand and Gruhast Satsangis (devoted householders) like Mayaram Bhatt.
 
+---
+
 **5.**  
 * **Gujarati:** તથા અમારે આશ્રિત જે સુવાસિની અને વિધવા એવી સર્વે બાઈઓ તથા મુક્તાનંદ આદિક જે સર્વે સાધુ
 
@@ -41,12 +46,15 @@
 
 * **English:** And my aashrit, including married women, widows, all other women, as well as all Sadhus such as Muktanand.
 
+---
 **6.**  
 * **Gujarati:** એ સર્વે-તેમણે પોતાના ધર્મની રક્ષાના કરનારા અને શાસ્ત્રને વિષે પ્રમાણરૂપ અને શ્રીમન્નારાયણની સ્મૃતિ એ સહિત એવા જે અમારા રૂડા આશીર્વાદ તે વાંચવા. 
 
 * **Lipi:** E sarve-temaṇe potāna dharmanī rakṣānā karṇārā ane śāstra ne viṣe pramāṇarūpa ane śrīmannārāyaṇnī smṛti e sahita evā je amārā rūḍā āśīrvād te vān̄cavā.
 
 * **English:** Let it be known that all those mentioned above shall receive my divine aashirvad (blessings) that safeguard their righteous paths, embodying the sacred memory of Shreeman Narayan and sanctioned by the shastras (scriptures).
+
+---
 
 **7.**  
 * **Gujarati:** અને આ શિક્ષાપત્રી લખ્યાનું જે કારણ છે તે સર્વે તેમણે એકાગ્ર મને કરીને ધારવું અને આ શિક્ષાપત્રી જે અમે લખી છે, તે સર્વેના જીવનું હિત કરનારી છે.
@@ -55,12 +63,16 @@
 
 * **English:** All my Satsangis with undivided attention shall study this Shikshapatri which is written by me for the spiritual welfare of every Jeev (soul).
 
+---
+
 **8.**  
 * **Gujarati:** અને શ્રીમદ્ ભાગવત પુરાણ આદિક જે સત્શાસ્ત્ર તેમણે જીવના કલ્યાણને અર્થે પ્રતિપાદન કર્યા એવા જે અહિંસા આદિક સદાચાર તેમને જે મનુષ્ય પાળે છે તે મનુષ્ય જે તે આ લોકને વિષે તથા પરલોકને વિષે મહાસુખિયા થાય છે.
 
 * **Lipi:** Anē śrīmad bhāgavata purāṇ ādika je satsastra temane jīvanā kalyāṇ ne arthe pratipādan karyā evā je ahiṁsā ādika sadācāra temne je manuṣya pāḷe che, tē manuṣya je tē ā lōkne viśe tathā paralōkne viśe mahāsukhiyā thāya che
 
 * **English:** Those who follow rules of ethics and the shastras shall get happiness in this world and in Parlok (after death in Akshardham) 
+
+---
 
 **9.**  
 * **Gujarati:** અને તે સદાચારનું ઉલ્લંઘન કરીને જે મનુષ્ય પોતાના મનમાં આવે તેમ વર્તે છે, તે તો કુબુધ્ધિવાળા છે અને આ લોક ને પરલોકને વિષે નિશ્ચે મોટા કષ્ટને જ પામે છે. 
@@ -75,3 +87,42 @@
 * **Lipi:** Tē māṭe amārā śiṣya evā je tame sarve temne to prītiē karīne ā śikṣāpatrīnē anusarīne je niraṉtara sāvadhānapanē vartavuṁ, paṇa ā śikṣāpatrīnuṁ ullānghana karīne vartavuṁ nahi.
 
 * **English:** All my disciples shall follow the commandments of this Shikshapatri vigilantly and not violate them.
+
+  
+---
+**11.**  
+* **Gujarati:** હવે તે વર્ત્યાની રીત કહીએ છીએ જે – અમારા જે સત્સંગી તેમણે કોઈ જીવ-પ્રાણી-માત્રની પણ હિંસા ન કરવી અને જાણીને તો ઝીણા એવા જુ, માંકડ, ચાંચડ આદિક જીવ તેમની પણ હિંસા ક્યારેય ન કરવી.
+
+* **Lipi:** Have tē vartyānī rīti kahīē chie je – amārā je satsaṅgī temṇe koi jīva-prāṇi-mātraṇī paṇa hinsā na karvī ane jāṇīne to zhīṇā evā ju, māṅkaḍ, cāṅcaḍ ādika jīva temnī pan hinsā kyārē na karvī.
+
+* **English:** Now, I shall describe the way of living - my aashrit should not cause harm to any living being, such as lice, bed bugs, insects, etc., knowingly or unknowingly.
+---
+**12.**  
+* **Gujarati:** અને દેવતા અને પિતૃ તેના યજ્ઞને અર્થે પણ બકરાં, મૃગલાં, સસલાં, માછલાં આદિક કોઈ જીવની હિંસા ન કરવી, કેમ જે અહિંસા છે તે જ મોટો ધર્મ છે એમ સર્વ શાસ્ત્રમાં કહ્યું છે.
+
+* **Lipi:** Anē devatā ane pitṛ tenā yajñne arthe pan bakarāṁ, mṛgalāṁ, sasalāṁ, mācalāṁ ādika ko'ī jīva-nī hinsā na karvī, kema je ahiṁsā che te je manuṣya pāḷe che tē manuṣya je tē ā lōkne viśe tathā paralōkne viśe mahādharma che ēm sarve śāstramāṁ kahyūṁ che
+
+* **English:** And for the deities and ancestors in their bali (sacrifices), no violence should be done to any living being, such as goats, deer, rabbits, fish, etc. This ahimsa (non-violence) is the highest dharma, as stated in all shastra.
+---
+**13.**  
+* **Gujarati:** અને સ્ત્રી, દ્રવ્ય અને રાજ્ય તેની પ્રાપ્તિને અર્થે પણ કોઈ મનુષ્યની હિંસા તો કોઈ પ્રકારે ક્યારેય પણ ન જ કરવી
+
+* **Lipi:** Anē strī, dhan ane rājya tenī prāpti ne arthe pan ko'ī manuṣya-nī himsā to ko'ī prakārē kyārē pan na karvī.
+
+* **English:** And a person should never commit himsa (violence) against anyone for the sake of obtaining women, wealth, or kingdom.
+---
+**14.**  
+* **Gujarati:** અને આત્મઘાત તો તીર્થને વિષે પણ ન કરવો, ને ક્રોધે કરીને ન કરવો, અને ક્યારેક કોઈ અયોગ્ય આચરણ થઈ જાય તે થકી મુંઝાઈને પણ આત્મઘાત ન કરવો અને ઝેર ખાઈને તથા ગળે ટુંપો ખાઈને તથા કૂવે પડીને તથા પર્વત ઉપરથી પડીને ઈત્યાદિક કોઈ રીતે આત્મઘાત ન કરવો.
+
+* **Lipi:** Anē ātma-ghāt to tīrthan ne viṣe pan na karvo, ne krodhē karīne pan na karvo, ane kyārē koi ayōgya ācharaṇ thāy te thakī muṁjhāīne pan ātma-ghāt na karvo, ane jēra khaine tatha gale tunpo khaine tatha kuve padine tatha parvat parti padine ityadi koi rite aatmaghat na karvo
+
+* **English:** And never commit self-harm by visiting (tirthsthan) sacred places, nor by anger, and even if one's conduct becomes improper, one should refrain from self-harm, by any means
+---
+**15.**  
+* **Gujarati:** અને જે માંસ છે તે તો યજ્ઞનું શેષ હોય તો પણ આપત્કાળમાં પણ ક્યારેય ન ખાવું અને ત્રણ પ્રકારની સુરા અને અગિયાર પ્રકારનું મધ, તે દેવતાનું નૈવેદ્ય હોય તો પણ ન પીવું.
+
+* **Lipi:** Ane je maans chhe, te to yajṉṉuṁ shesh hoy to pan āpatkālmaṁ pan kyārēy n khāvu ane traṇ prakār-nī surā ane agiyāra prakār-nuṁ madh, te devtanu naivedya hoy to pan na pīvu.
+
+* **English:** And under any circumstances, one shall not eat meat, even if it is in the form of prasad. Nor shall one drink liquor, wine or intoxicating beverages even though it may be an offering to a deity.
+---
+
