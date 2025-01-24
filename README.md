@@ -369,3 +369,93 @@
 * **English:** And all those who come to the mandir of Shree Krishna Bhagwan either daily or on festival days, shall keep themselves away from the opposite gender in the mandir.
 
 ---
+
+**41.**  
+* **Gujarati:** અને ધર્મવંશી ગુરુથકી શ્રીકૃષ્ણની દીક્ષાને પામ્યા એવા જે બ્રાહ્મણ, ક્ષત્રિય અને વૈશ્ય એ ત્રણ વર્ણના અમારા સત્સંગી, તેમણે કંઠને વિષે તુલસીની બેવડી માળા નિત્યે ધારવી અને લલાટ, હૃદય અને બે હાથ એ ચારે ઠેકાણે ઊર્ધ્વપુંડ્ર તિલક કરવું.
+
+* **Lipi:** Anē dharmavaṁśī guruthakī śrīkṛṣṇanī dīkṣānē pāmyā ēvā jē brāhmaṇa, kṣatriya anē vaiśya ē traṇa varṇanā amārā satsaṅgī, tēmanē kaṇṭhanē visē tulasīnī bēvaḍī māḷā nityē dhārvī anē lalaṭa, hṛdaya anē bē hātha ē cārē ṭhēkāṇē ūrdhvapuṇḍra tilaka karvū.
+
+* **English:** And all my aashrits who have been initiated into diksha of Shree Krishna Bhagwan by the Acharya shall always wear around their neck a two-fold Kanthi prepared from Tulsi wood and shall mark their forehead, chest and both arms with a Tilak (Urdhva-pundra). 
+
+---
+
+**42.**  
+* **Gujarati:** અને તે તિલક જે તે ગોપીચંદને કરીને કરવું, અથવા ભગવાનની પૂજા કરતાં બાકી રહ્યું અને કેશર કુંકુમાદિકે યુક્ત એવું જે પ્રસાદી ચંદન તેણે કરીને તિલક કરવું. 
+
+* **Lipi:** Anē tē tilaka jē tē gōpīcandana nē karīnē karvū, athavā bhagavān'ni pūjā karatāṁ bākī rahyuṁ anē keśara kuṅkumādika yukta ēvū jē prasādī candana tēmanē karīnē tilaka karvū. 
+
+* **English:** And the tilak shall be made with Gopichandan stick or with consecrated sandal paste mixed with Kum-Kum and saffron duly offered to Shree Krishna Bhagwan. 
+
+---
+
+**43.**  
+* **Gujarati:** અને તે તિલકના મધને વિષે જ ગોળ એવો જે ચાંદલો તે જેતે ગોપીચંદને કરીને કરવો અથવા રાધિકાજી અને લક્ષ્મીજી તેનું પ્રસાદીનું એવું જે કુંકુમ તેણે કરીને તે ચાંદલો કરવો. 
+
+* **Lipi:** Anē tē tilaknā madh, nē visē jē gōḷa ēvu jē chāndalō tē jē tē gōpīcandana nē karīnē karvū athavā rādhikājī anē lakṣmījī tēnuṁ prasādī ēvū jē kumkuma tēmanē karīnē tē chāndalō karvū. 
+
+* **English:** And in the center of the tilak, one shall make a chandlo (round mark) from either Gopichandan or Kum-Kum which has been offered to Radhikaji or Laxmiji.
+
+---
+
+**44.**  
+* **Gujarati:** અને પોતાના ધર્મને વિષે રહ્યા અને શ્રીકૃષ્ણના ભક્ત એવા સતશુદ્ર તેમણે તો તુલસીની માળા અને ઊર્ધ્વપુંડ્ર તિલક તે બ્રાહ્મણ, ક્ષત્રિય, વૈશ્યની પેઠે ધારવા.  
+
+* **Lipi:** Anē pōtānā dharmanē visē rahyā anē śrīkṛṣṇanā bhakta ēvā satsudra tēmanē tō tulasīnī māḷā anē ūrdhvapuṇḍra tilaka tē brāhmaṇa, kṣatriya, vaiśyanī pēṭhē dhārvā. 
+
+* **English:** And sat-shudra(shudras performing good deeds), who are bhakts of Shree Krishna Bhagwan, observing their Dharma, shall also wear a Tulsi kanthi and tilak.(just like brahman, kshariya, and vaishya)
+
+---
+
+**45.**  
+* **Gujarati:** અને તે સતશુદ્ર થકી બીજા જે જાતિએ કરીને ઉતરતા એવા ભક્તજન તેમણે તો ચંદનાદિક કાષ્ઠની જે બેવડી માળા તે ભગવાનની પ્રસાદી કરાવીને કંઠને વિષે ધારવી અને લલાટને વિષે કેવળ ચાંદલો કરવો પણ તિલક ન કરવું.
+
+* **Lipi:** Anē tē satasudra thakī bījā jē jātiē karīnē utaratā ēvā bhakta-jana tēmanē tō chandananādika kāṣṭhanī māḷā tē bhagavān'nī prasādī karaṁvīnē kaṇṭhanē visē dhārvī anē lalaṭanē visē kevāla chāndalō karvū paṇa tilaka nā karvū.
+
+* **English:** And my aashrits who belong to the caste lower than the sat-shudra (pure shudra) shall wear a kanthi (sanctified double rosary of sandalwood) around their neck and shall place only a chandlo on their forehead but not a tilak.
+
+---
+
+**46.**  
+* **Gujarati:** અને જે બ્રાહ્મણાદિકને ત્રિપુંડ જેવું આડું તિલક કરવું તથા રુદ્રાક્ષની માળા ધારવી- એ બે વાનાં પોતાની કુળ પરંપરાએ કરીને ચાલ્યાં આવ્યાં હોય અને તે બ્રાહ્મણાદિક અમારા આશ્રિત થયા હોય તો પણ તેમણે તે ત્રિપુંડ અને રુદ્રાક્ષનો ક્યારેય ત્યાગ ન કરવો
+
+* **Lipi:** Anē jē brāhmaṇādiknē tripuṁḍ jē āḍuṁ tilaka karvuṁ tathā rudrākṣanī māḷā dhārvī - ē bē vānā pōtānī kuḷa paraṁparāē karīnē chālyāṁ āvyāṁ hōy anē tē brāhmaṇādika amārā āśrita thayā hōy tō paṇa tēmaṇē tē tripuṁḍ ane rudrākṣanō kyārēya tyāga na karvō.
+
+* **English:** And Brahmins and others who have, for generations, marked their foreheads with tripundra (a three-fold horizontal mark) and worn a necklace made of Rudraksh beads because of family traditions and customs, shall continue to do so even after becoming my aashrit.
+
+---
+
+**47.**  
+* **Gujarati:** અને નારાયણ અને શિવજી એ બેનું એકાત્મપણું જ જાણવું, કેમ જે વેદને વિષે એ બેનું બ્રહ્મરૂપે કરીને પ્રતિપાદન કર્યુ છે.
+
+* **Lipi:** Anē nārāyaṇa anē śivajī ē bēnuṁ ēkātmapuṇuṁ jē jāṇavuṁ, kēma jē vēdana visē ē bēyanuṁ brahmarūpē karīnē pratipādana karyu chē.
+
+* **English:** And all aashrits shall believe Narayan and Shivaji are one because, as per Vedas, it is established that Narayan and Shivaji are one Brahmaswarup.
+
+---
+
+**48.**  
+* **Gujarati:** અને અમારા આશ્રિત જે મનુષ્ય તેમણે શાસ્ત્રે કહ્યો જે આપદધર્મ તે અલ્પ આપત્કાળને વિષે મુખ્યપણે કરીને ક્યારેય ગ્રહણ ન કરવો. 
+
+* **Lipi:** Anē amārā āśrita jē manuṣya tēmaṇē śāstrē kahyō jē āpadadharm tē alpa āpatkāḷanē visē mukhyapaṇē karīnē kyārē grahaṇa na karvō.
+
+* **English:** And my aashrits shall not accept and practice, Aapatkaal Dharma (shastras permits flexibility in life-or-death situations), when there are no adverse conditions.
+
+---
+
+**49.**  
+* **Gujarati:** અને અમારા સત્સંગી તેમણે નિત્યે સૂર્ય ઉગ્યાંથી પહેલા જ જાગવું અને શ્રીકૃષ્ણ ભગવાનનું સ્મરણ કરીને પછી શૌચવિધિ કરવા જવું. 
+
+* **Lipi:** Anē amārā satsaṅgī tēmaṇē nityē sūrya ugyānthī prathama jē jāgavuṁ anē śrīkṛiṣhṇa bhagavān nu smaraṇ karīnē pachhī śaucavidhi karvā javu.
+
+* **English:** And all my aashrits shall get up daily before sunrise, meditate upon Shree Krishna Bhagwan, and then go to answer the call of nature.
+
+---
+
+**50.**  
+* **Gujarati:** અને પછી એક સ્થાનકને વિષે બેસીને દાતણ કરવું અને પછી પવિત્ર જળે કરીને સ્નાન કરીને પછી ધોયેલું વસ્ત્ર એક પહેરવું અને એક ઓઢવું. 
+
+* **Lipi:** Anē pachhī ēka sthānakanē viṣē bēsīnē dātaṇa karvuṁ anē pachhī pavitra jalē karīnē snāna karīnē pachhī dhōyeluṁ vastru ēk pahērvuṁ anē ēk ōḍhavuṁ.
+
+* **English:** And thereafter, sitting in one place, they shall brush their teeth, bathe with clean water, and then wear one washed cloth around the waist and one around the upper part of the body.
+
+---
