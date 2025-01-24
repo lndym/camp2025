@@ -276,3 +276,96 @@
 * **Lipi:** Anē gāḷyā vinānuṁ jē jala tathā dūdha tē nā pīvuṁ anē jē jalanē visē jhīṇā jīva ghaṇāṁk hōy tē jalē karīnē snānādika krīyā nā karvī.
 
 * **English:** And one shall never drink unfiltered water or milk nor bathe with water which contains many organisms. 
+
+
+---
+
+**31.**  
+* **Gujarati:** અને જે ઔષધ દારૂ તથા માંસ તેણે યુક્ત હોય તે ઔષધ ક્યારેય ન ખાવું અને વળી જે વૈદ્યના આચરણને જાણતા ન હોઈએ તે વૈદ્યે આપ્યું જે ઔષધ તે પણ ક્યારેય ન ખાવું
+
+* **Lipi:** Anē jē auṣadha dārū tathā māṁsa tēṇē yukta hōy tē auṣadha kyārē nā khāvuṁ anē vaḷī jē vaidyanā ācaraṇanē jāṇatā nahiē tē vaidyē āpyuṁ jē auṣadha tē paṇa kyārē nā khāvuṁ. 
+
+* **English:** And one shall never take any medicine which contains alcohol or meat and extract of any living being, nor take medicine from an unknown Vaidya (doctor). 
+
+---
+
+**32.**  
+* **Gujarati:** અને લોક ને શાસ્ત્ર તેમણે મળમૂત્ર કરવાને અર્થે વર્જ્યા એવા સ્થાનક, જે જીર્ણ દેવાલય તથા નદી-તળાવના આરા તથા માર્ગ તથા વાવેલું ખેતર તથા વૃક્ષની છાયા તથા ફુલવાડી બગીચાએ આદિક જે સ્થાનક તેમને વિષે ક્યારેય પણ મળ- મૂત્ર ન કરવું તથા થૂંકવું પણ નહિ.
+
+* **Lipi:** Anē lōka nē śāstra tēmanē malamūtra karavānē arthē varjyā ēva sthānaka, jē jīrṇa dēvālaya tathā nadī-ṭalāvana ārā tathā mārga tathā vāvēluṁ khētara tathā vṛkṣanī chāyā tathā phulavāḍī bagīcā ē ādika jē sthānaka tēmanē visē kyārē panu mūtra nā karvī tathā thūn̐kavūṁ paṇa nahī.
+
+* **English:** And one shall never excrete, urinate or spit in places that have been prohibited by shastras and societal norms such as mandirs, banks of rivers or ponds, main roads, fields, trees, orchards, gardens, etc.
+
+---
+
+**33.**  
+* **Gujarati:** અને ચોર માર્ગે કરીને પેસવું નહિ અને નિકળવું નહિ અને જે સ્થાનક ધણીયાતું હોય તે સ્થાનકને વિષે તેના ધણીને પૂછ્યા વિના ઉતારો ન કરવો.
+
+* **Lipi:** Anē cōramārgē karīnē pēsavuṁ nahi anē nisaravuṁ nahi anē jē sthānaka dhṇīyātuṁ hōy tē sthānakanē visē tēnā dhaṇīnē pūchhyā vinā utārō nā karvō.
+
+* **English:** And one shall never enter or exit through an unsual way and shall not occupy any private property without the permission of its owner. 
+
+---
+
+**34.**  
+* **Gujarati:** અને અમારા સત્સંગી જે પુરુષ માત્ર તેમણે બાઈ માણસના મુખથકી જ્ઞાનવાર્તા ન સાંભળવી અને સ્ત્રીઓ સાથે વિવાદ ન કરવો તથા રાજા સંગાથે તથા રાજાના માણસ સંગાથે વિવાદ ન કરવો.
+
+* **Lipi:** Anē amārā satsaṅgī jē puruṣa mātra tēmanē bā'ī māṇasanā mukhathakī gñānavārtā nā sāṅbhaḷavī anē strī'ō sātha vivāda nā karvō tathā rājā saṅgāthē tathā rājānā māṇasan saṅgāthē vivāda nā karvō. 
+
+* **English:** And my male disciples shall never listen to the religious discourses given by females, nor enter into arguments with females, rulers, and courtiers. 
+
+---
+
+**35.**  
+* **Gujarati:** અને ગુરૂનું અપમાન ન કરવું તથા જે અતિશય શ્રેષ્ઠ મનુષ્ય હોય તથા જે લોકને વિષે પ્રતિષ્ઠિત મનુષ્ય હોય તથા જે વિદ્વાન મનુષ્ય હોય તથા જે શસ્ત્રધારી મનુષ્ય હોય તે સર્વેનું અપમાન ન કરવું.
+
+* **Lipi:** Anē gurūnuṁ apamāna nā karvūṁ tathā jē atiśaya śrēṣṭha manuṣya hōy tathā jē lōk nē visē pratishṭhita manuṣya hōy tathā jē vidvāna manuṣya hōy tathā jē śastra-dhārī manuṣya hōy tē sarvēnuṁ apamāna nā karvūṁ. 
+
+* **English:** And one shall never insult a Guru, those who are dignified, reputed and respected people of society, learned or armed people. 
+
+---
+
+**36.**  
+* **Gujarati:** અને વિચાર્યા વિના તત્કાળ કોઈ કાર્ય ન કરવું અને ધર્મ સંબંધી જે કાર્ય તે તો તત્કાળ કરવું અને પોતે જે વિદ્યા ભણ્યા હોઈએ તે બીજાને ભણાવવી અને નિત્ય પ્રત્યે સાધુનો સમાગમ કરવો. 
+
+* **Lipi:** Anē vichāryā vinā tatkāla kān'ī kārya na karvuṁ anē dharm sambandhī jē kārya tē tō tatkāla karvuṁ anē pōtē jē vidyā bhaṇ'yā hō'īē tē bījānē bhaṇāvavī anē nitya pratyē sādhu nō samāgam karvō. 
+
+* **English:** And one shall never perform duties pertaining to one’s social affairs immediately without careful consideration, where as duties pertaining to Dharma shall be performed immediately. Those who are learned shall impart their knowledge to others and shall regularly associate with Sadhus. 
+
+---
+
+**37.**  
+* **Gujarati:** અને ગુરૂ, દેવ અને રાજા એ ત્રણના દર્શનને અર્થે જ્યારે જવું ત્યારે ઠાલે હાથે ન જવું અને કોઈનો વિશ્વાસઘાત ન કરવો અને પોતાને મુખે કરીને પોતાના વખાણ ન કરવા. 
+
+* **Lipi:** Anē gurū, dēva anē rājā ē traṇanā darśanē arthē jyārē javuṁ tyārē khālē hāthē na javuṁ anē kō'īnō visvāsaghāt na karvō anē pōtānē mukhē karīnē pōtānā vakhāṇ na karvā. 
+
+* **English:** And one shall never go empty handed to a Guru, a Devata or a king. And one shall never commit a breach of trust and shall never boast about oneself.
+
+---
+
+**38.**  
+* **Gujarati:** ને જે વસ્ત્ર પહેર્યે થકે પણ પોતાના અંગ દેખાય તેવું જે ભુંડુ વસ્ત્ર તે અમારા સત્સંગી તેમણે ન પહેરવું. 
+
+* **Lipi:** Anē jē vastr pahēryē thakē pana pōtānā aṅga dēkhāy tēvuṁ jē bhundu vastr tē amārā satsaṅgī tēmaṇē na pahērvuṁ. 
+
+* **English:** And my aashrits shall never wear such clothes that cause any indecent exposure of the body such as transparent, over tight and short clothes which are stimulating.
+
+---
+
+**39.**  
+* **Gujarati:** અને શ્રીકૃષ્ણ ભગવાનની જે ભક્તિ તે ધર્મેરહિત એવી કોઈ પ્રકારે ન કરવી અને અજ્ઞાની એવા જે મનુષ્ય તેમની નિંદાના ભય થકી શ્રીકૃષ્ણ ભગવાનની સેવાનો ત્યાગ કરવો જ નહિ.
+
+* **Lipi:** Anē śrīkṛṣṇa bhagavān'ni jē bhakti tē dharmēra-hita ēvī kō'ī prakārē na karvī anē ajñān'ī ēvā jē manuṣya tēmanī nindānā bhay thakī śrīkṛṣṇa bhagavān'ni sēvānō tyāga karvō jē nahī. 
+
+* **English:** And one shall never practice bhakti of Shree Krishna Bhagwan without observance of Dharma and one shall never give up the seva of Shree Krishna Bhagwan for fear of being criticised by ignorant people. 
+
+---
+
+**40.**  
+* **Gujarati:** અને ઉત્સવના દિવસને વિષે તથા નિત્ય પ્રત્યે શ્રીકૃષ્ણના મંદિરમાં આવ્યા એવા જે સત્સંગી પુરૂષ તેમણે તે મંદિરને વિષે સ્ત્રીઓનો સ્પર્શ ન કરવો તથા સ્ત્રીઓ તેમણે પુરુષનો સ્પર્શ ન કરવો અને મંદિરમાંથી નિસર્યા પછી પોતપોતાની રીતે વર્તવું.
+
+* **Lipi:** Anē utsavanā divasanē visē anē nitya pratyē śrīkṛṣṇanā manḍiramāṁ āvyā ēvā jē satsaṅgī puruṣ tēmanē tē manḍirnē visē strī'ōnō sparśa na karvō anē strī'ō tēmanē puruṣanō sparśa na karvō anē manḍiramāṁthī nisaryā pachhī pōtapōtānī rītē vartavuṁ. 
+
+* **English:** And all those who come to the mandir of Shree Krishna Bhagwan either daily or on festival days, shall keep themselves away from the opposite gender in the mandir.
+
+---
