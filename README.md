@@ -2,6 +2,14 @@
 
 # Shikshapatri
 
+--- 
+
+ *Bhagwan Shree Swaminarayan wrote "Shikshapatri" on Maha Sud 5 (Vasant Panchami), Sanvat 1882 (Monday, February 12, 1826  A.D.) in which he defined rules for his devotees to follow. There are 212 Sloks in Shikshapatri and is a tool of everlasting bliss and salvation for the people of all age and groups (Acharyas and their wives, Santo, Brahmacharis and Haribhakto). In the last Shlok of Shikshapatri, Shree Hari said “Everyone should read few shloks of this Shikshapatrievery day, and if one cannot read, they should listen to someone reading it and if that is not possible, then they should do puja of it on daily basis”.*
+ 
+*The following translation of the Shikshapatri has been approved by H.H. 1008 Acharya Shree Ajendraprasadji Maharaj*
+
+---
+
 **1.**  
 * **Gujarati:** (શ્રી સહજાનંદ સ્વામી જે તે પોતાના સત્સંગી પ્રત્યે શિક્ષાપત્રીને લખતા થકા પ્રથમ પોતાના ઈષ્ટદેવ જે શ્રીકૃષ્ણ ભગવાન તેનું ધ્યાનરૂપ મંગળાચરણ કરે છે.) હું જે તે મારા હૃદયને વિષે શ્રીકૃષ્ણ ભગવાનનું ધ્યાન કરૂં છું તે શ્રીકૃષ્ણ કેવા છે, તો – જેના ડાબા પડખાને વિષે રાધિકાજી રહ્યા છે, અને જેના વક્ષ:સ્થળને વિષે લક્ષ્મીજી રહ્યા છે અને વૃન્દાવનને વિષે વિહારના કરનારા છે.
 
