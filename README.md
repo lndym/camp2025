@@ -954,5 +954,205 @@
 
 * **Lipi:** Anē śrī rāmānujācāryē karyu ēvu je vyāsasūtra nūṁ śrībhāṣya tathā śrībhagavadgītānūṁ bhāṣya ē jē bē tē amāruṁ adhyātmaśāstra chē ēm jāṇavuṁ. 
 
-* **English:** And all my aashrits shall acknowledge the Shri Bhashya (commentaries on Vyaas-Sutra) and Shree Bhagwat Gita Bhashya by Shree Ramanujacharya, as my vedantic philosophy. 
+* **English:** And all my aashrits shall acknowledge the Shri Bhashya (commentaries on Vyaas-Sutra) and Shree Bhagwat Gita Bhashya by Shree Ramanujacharya, as my vedantic philosophy.
+
+---
+
+**101.**  
+
+* **Gujarati:** અને એ સર્વે સત્શાસ્ત્રને વિષે જે વચન તે જે તે શ્રીકૃષ્ણ ભગવાનનું સ્વરૂપ તથા ધર્મ તથા ભક્તિ તથા વૈરાગ્ય એ ચારના અતિ ઉત્કર્ષપણાને કહેતા હોય.
+
+* **Lipi:** Anē ē sarvē satsāstranē viṣē jē vacana tē jē tē śrīkṛṣṇa bhagavān nūṁ svarūpa tathā dharma tathā bhakti tathā vairāgya ē cāranā ati utkarṣapānānē kahētā hōya. 
+
+* **English:** And the writings in these shastras which speak of the greatness of divinity of the form of Shree Krishna Bhagwan, and of Dharma, Bhakti and Vairagya;
+
+---
+
+**102.**  
+
+* **Gujarati:** તે વચન જે તે બીજા વચન કરતાં પ્રધાનપણે માનવાં અને શ્રીકૃષ્ણ ભગવાનની ભક્તિ તે જે તે ધર્મે સહિત જ કરવી; એવી રીતે તે સર્વે સત્શાસ્ત્રનું રહસ્ય છે. 
+
+* **Lipi:** Tē vacana jē tē bījā vacana karatāṁ pradhanapānē mānavā anē śrīkṛṣṇa bhagavān nī bhakti tē jē tē dharmē sahit j karvī; ēvī rītē tē sarvē satsāstranuṁ rahasya chē. 
+
+* **English:** These writings shall be considered of greater value than other writings and the devotion of Shree Krishna Bhagwan shall be done inseparable from Dharma. 
+
+---
+
+**103.**  
+
+* **Gujarati:**  અને શ્રુતિ સ્મૃતિ તેમણે પ્રતિપાદન કર્યો એવો જે સદાચાર, તે ધર્મ જાણવો; અને શ્રીકૃષ્ણ ભગવાનને વિષે માહાત્મ્યજ્ઞાને સહિત જે ઘણો સ્નેહ તે ભક્તિ જાણવી. 
+
+* **Lipi:**  Anē śruti smṛti tēmanē pratipādana karyō ēvo je sadācāra, tē dharma jāṇavō; anē śrīkṛṣṇa bhagavān nē viṣē māhātmyajñānē sahita jē ghaṇō sneha tē bhakti jāṇavī. 
+
+* **English:** And Dharma is the right conduct as authenticated by Shruti (heard) and Smruti (remembered); and Bhakti is profound love for Bhagwan coupled with knowledge of the majesty and magnificence of Shree Krishna Bhagwan. 
+
+---
+
+**104.**  
+
+* **Gujarati:**  અને શ્રીકૃષ્ણ ભગવાન વિના અન્ય પદાર્થમાં પ્રીતિ નહિ તે વૈરાગ્ય જાણવો. અને જીવ, માયા અને ઈશ્વર તેમના સ્વરૂપને જે રૂડી રીતે જાણવું તેને જ્ઞાન કહીએ. 
+
+* **Lipi:**  Anē śrīkṛṣṇa bhagavān vinā anya padārthamāṁ prīti nahi tē vairāgya jāṇavō. Anē jīva, māyā anē īśvara tēmanā svārūpanē jē rūḍī rītē jāṇavūṁ tēnā gñān kahī'ē. 
+
+* **English:** And vairagya is non-attachment to everything except Shree Krishna Bhagwan; and gnan (knowledge) is comprehensive understanding of jeev (soul), maya (illusion) and ishwar (the Dev you worship). 
+
+---
+
+**105.**  
+
+* **Gujarati:** અને જે જીવ છે તે હૃદયને વિષે રહ્યો છે ને અણુ સરખો સૂક્ષ્મ છે ને ચૈતન્યરૂપ છે ને જાણનારો છે, અને પોતાની જ્ઞાનશક્તિએ કરીને નખથી શિખાપર્યંત સમગ્ર પોતાના દેહ પ્રત્યે વ્યાપીને રહ્યો છે, અને અછેદ્ય, અભેદ્ય, અજર, અમર, ઈત્યાદિક છે લક્ષણ જેનાં એવો જીવ છે એમ જાણવો. 
+
+* **Lipi:**  Anē jē jīva chē tē hṛdayanē viṣē rahyō chē nē anu sarakhō sūkṣma chē nē caitanyarūpa chē nē jāṇanārō chē, anē potānī gñānaśaktiē karīnē nakhathī śikhāparyanta samagra potānā dēha pratẽ vyāpīnē rahyō chē, anē achēd, abhēd, ane amara, ītyādik chē lakṣaṇa jēnā ēvō jīva chē ēm jāṇavūṁ.
+
+* **English:**  And the jeev dwells in the heart and is as small as an atom. It is conscious and knowledgeable. By the virtue of subjectivity, it is present in the whole body. It is impenetrable, indivisible, indestructible and eternal. 
+
+---
+
+**106.**  
+
+* **Gujarati:** અને જે માયા છે, તે ત્રિગુણાત્મિકા છે ને અંધકાર રૂપ છે ને શ્રીકૃષ્ણ ભગવાનની શક્તિ છે, અને આ જીવને દેહ તથા દેહના જે સંબંધી તેમને વિષે અહંમમત્વની કરાવનારી છે, એમ માયાને જાણવી. 
+
+* **Lipi:** Anē jē māyā chē, tē triguṇātmikā chē nē andhakāra rūpa chē nē śrīkṛṣṇa bhagavān nī śakti chē, anē ā jīva nē dēha tathā dēhanā jē sambandhī tēmanē viṣē ahaṁmamatvanī karāvanārī chē, ēm māyānē jāṇavī.
+
+* **English:**  And maya is trigunatmik (comprised of three qualities – Satva, Rajas and Tamas). It is full of darkness and is the power of Shree Krishna Bhagwan. It is the source of creating ego and attachment towards the body and relations thereof. 
+
+---
+
+**107.**  
+
+* **Gujarati:** અને જે ઈશ્વર છે, તે જે તે જેમ હૃદયને વિષે જીવ રહ્યો છે, તેમ તે જીવને વિષે અંતર્યામીપણે કરીને રહ્યા છે. ને સ્વતંત્ર છે ને સર્વ જીવને કર્મફળના આપનારા છે, એમ ઈશ્વરને જાણવા. 
+
+* **Lipi:** Anē jē īśvara chē, tē jē tē jēm hṛdayanē visē jīva rahyō chē, tēma tē jīvanē visē antaryāmīpanē karīnē rahyā chē. Nē svatantra chē nē sarva jīvanē karmafalnā āpanārā chē, em īśvaranē jāṇavā. 
+
+* **English:** And just as jeev dwells in the heart, so does ishwar dwell in the heart of jeev as the controlling power and is invisible, independent. He is supreme and gives rewards to all according to the jeev's karma. 
+
+---
+
+**108.**  
+
+* **Gujarati:** અને તે ઈશ્વર તે ક્યા તો પરબ્રહ્મ પુરુષોત્તમ એવા જે શ્રીકૃષ્ણ ભગવાન તે ઈશ્વર છે, અને તે શ્રીકૃષ્ણ જે તે આપણા ઈષ્ટદેવ છે ને ઉપાસના કરવા યોગ્ય છે અને સર્વ અવતારના કારણ છે. 
+
+* **Lipi:** Anē tē īśvara tē kyā tō parabrahma puruṣōttama evā jē śrīkṛṣṇa bhagavān tē īśvara chē, anē tē śrīkṛṣṇa jē tē āpaṇā īṣṭadēva chē nē upāsanā karvā yōgya chē anē sarva avatāranā kāraṇa chē. 
+
+* **English:**  And that Ishwar is Shree Krishna Bhagwan, who is Parabrahma Purushottam and our most cherished devta. He is worthy of devotion by us all and he is the source of all avatars (incarnations). 
+
+---
+
+**109.**  
+
+* **Gujarati:** અને સમર્થ એવા જે શ્રીકૃષ્ણ તે જે તે રાધિકાજીએ યુક્ત હોય ત્યારે ‘રાધાકૃષ્ણ’ એવે નામે જાણવા, અને રૂક્મિણીરૂપ જે લક્ષ્મી, તેમણે યુક્ત હોય ત્યારે ‘લક્ષ્મીનારાયણ’ એવે નામે જાણવા. 
+
+* **Lipi:** Anē samartha evā jē śrīkṛṣṇa tē jē tē rādhikājīē yukta hōy tyārē ‘rādhākṛṣṇa’ evā nāmē jāṇavā, anē rūkmiṇīrūpa jē lakṣmī, tēmaṇē yukta hōy tyārē ‘lakṣmīnārāyaṇa’ evā nāmē jāṇavā. 
+
+* **English:** And when Shree Krishna Bhagwan is by the side of Radhikaji, he shall be known as Shree Radhakrishna Dev. When he is beside Laxmiji in the form of Rukmaniji, he shall be known as Shree Laxminarayan Dev;
+
+---
+
+**110.**  
+
+* **Gujarati:**  અને એ શ્રીકૃષ્ણ જે તે અર્જુને યુક્ત હોય ત્યારે નરનારાયણ એવે નામે જાણવા અને વળી તે શ્રીકૃષ્ણ જે તે બળભદ્રાદિકને યોગે કરીને તે તે નામે કહેવાય છે એમ જાણવું. 
+
+* **Lipi:** Anē ē śrīkṛṣṇa jē tē arjunē yukta hōy tārē naranārāyaṇa evā nāmē jāṇavā anē vaḷī tē śrīkṛṣṇa jē tē balabhādradhik ane yukta hōy tārē tē tē nāmē kahēvāy chē em jāṇavuṁ.
+
+* **English:** And when he is by the side of Arjunji, he shall be known as Narnarayan Dev, and in the same manner, when Balbhadra or other devtas are by his side, he shall be known by their own name.
+
+---
+
+**111.**  
+
+* **Gujarati:** અને એ જે રાધાદિક ભક્ત તે જે તે ક્યારેક તો તે શ્રીકૃષ્ણ ભગવાનને પડખે હોય છે અને ક્યારેક તો અતિ સ્નેહે કરીને શ્રીકૃષ્ણ ભગવાનના અંગને વિષે રહે છે. ત્યારે તો તે શ્રીકૃષ્ણ ભગવાન એકલા જ હોય એમ જાણવા. 
+
+* **Lipi:** Anē ē jē rādhādika bhakta tē jē tē kyaṛēk tō tē śrīkṛṣṇa bhagavānane paḍakhē hōy chē anē kyaṛēk tō ati snehē karīnē śrīkṛṣṇa bhagavānane āngaṇē visē rahyā chē. Tārē tō tē śrīkṛṣṇa bhagavān ēkālā j hōy em jāṇavuṁ. 
+
+* **English:** And at times, bhakts such as Radhikaji and others are alongside Shree Krishna Bhagwan but at other times, they, with extreme devotion, dwell within Shree Krishna Bhagwan and at such times shall be considered as by himself. 
+
+---
+
+**112.**  
+
+* **Gujarati:** એ હેતુ માટે એ શ્રીકૃષ્ણ ભગવાનનાં જે સ્વરૂપ તેમને વિષે સર્વે પ્રકારે કરીને ભેદ ન જાણવો અને ચતુર્ભુજપણું, અષ્ટભુજપણું સહસ્ત્રભુજપણું, ઈત્યાદિક જે ભેદ જણાય છે તે તો દ્વિભુજ એવા જે તે શ્રીકૃષ્ણ તેમની ઈચ્છાએ કરીને છે એમ જાણવું. 
+
+* **Lipi:**  Ē hetu māṭē ē śrīkṛṣṇa bhagavānnā jē svarūpa tēmanē visē sarvē prakārē karīnē bhēda na jāṇavō anē caturbhuja, aṣṭabhuja, sahasrabhuja, ityādika jē bhēda jaṇāy chē tē tō dvibhuja evā jē tē śrīkṛṣṇa tēmanī icchāē karīnē chē em jāṇavuṁ. 
+
+* **English:**  Therefore one shall not discriminate between the different avatars of Shree Krishna Bhagwan, as the four armed, eight armed or thousand armed avatars of the two armed Shree Krishna Bhagwan are avatars by his own free will.
+
+---
+
+**113.**
+
+* **Gujarati:** અને એવા જે તે શ્રીકૃષ્ણ ભગવાન તેની જે ભક્તિ, તે જે તે – પૃથ્વીને વિષે સર્વ મનુષ્ય, તેમણે કરવી અને તે ભક્તિ થકી બીજું કલ્યાણકારી સાધન કાંઈ નથી એમ જાણવું. 
+
+* **Lipi:** Anē ēvā jē tē śrīkṛṣṇa bhagavānnī jē bhakti, tē jē tē – pṛthvīnē visē sarva manuṣya, tēmaṇē karvī anē tē bhakti thakī bījuṁ kalyāṇakārī sādhana kāī nathi em jāṇavuṁ. 
+
+* **English:** And therefore everyone shall do bhakti of Shree Krishna Bhagwan as there isn't a better path to kalyaan (salvation) other than the bhakti of Shree Krishna Bhagwan. 
+
+---
+
+**114.**
+
+* **Gujarati:** અને વિદ્યાદિક ગુણવાળા જે પુરુષ, તેમના ગુણવાનપણાનું એ જ પરમ ફળ જાણવું, કયું તો જે શ્રીકૃષ્ણ ભગવાનને વિષે ભક્તિ કરવી ને સત્સંગ કરવો; અને એમ ભક્તિ ને સત્સંગ એ બે વિના તો વિદ્વાન હોય તે પણ અધોગતિને પામે છે. 
+
+* **Lipi:** Anē vidyādika guṇavālā jē puruṣa, tēmanā guṇavānapaṇānuṁ ē j parama phala jāṇavuṁ, kayuṁ tō jē śrīkṛṣṇa bhagavānnē vise bhakti karvī ne satsaṅga karvō; anē ēmaṁ bhakti nē satsaṅga ē bē vinā tō vidvāna hōy tē paṇa adhogati nē pāmē chē. 
+
+* **English:** And the supreme aim of having good virtues is to pursue the bhakti of Shree Krishna Bhagwan and to stay in satsang; and if this goal is not achieved, even a scholar will meet their downfall.
+
+---
+
+**115.**
+
+* **Gujarati:** અને શ્રીકૃષ્ણ ભગવાન તથા શ્રીકૃષ્ણ ભગવાનના જે અવતાર તે જે તે ધ્યાન કરવા યોગ્ય છે; તથા શ્રીકૃષ્ણ ભગવાનની જે પ્રતિમા, તે પણ ધ્યાન કરવા યોગ્ય છે. માટે એમનું ધ્યાન કરવું. અને મનુષ્ય તથા દેવાદિક જે જીવ તે તો શ્રીકૃષ્ણ ભગવાનના ભક્ત હોય અને બ્રહ્મવેત્તા હોય તો પણ ધ્યાન કરવા યોગ્ય નથી, માટે એમનું ધ્યાન ન કરવું.
+
+* **Lipi:**  Anē śrīkṛṣṇa bhagavān tathā śrīkṛṣṇa bhagavānnā jē avatāra tē jē tē dhyāna karvā yōgya chē; anē śrīkṛṣṇa bhagavānnī jē pratimā, tē pan̄ dhyāna karvā yōgya chē. Māṭē ēmanuṁ dhyāna karvūṁ. Anē manuṣya tathā devādika jē jīva tē tō śrīkṛṣṇa bhagavānnā bhakta hōy anē brahmavettā hōy tō pan̄ dhyāna karvā yōgya nathi, māṭē ēmanuṁ dhyāna n karvūṁ. 
+
+* **English:** And Shree Krishna Bhagwan, his avatars, and his images are alone worthy of dhyan (meditation), but one shall never meditate upon a person, a deity, or jeev even though he may be a profound bhakta of Shree Krishna Bhagwan or a Brahmvetta (knowledgable person of religion). 
+
+---
+
+**116.**
+
+* **Gujarati:** અને સ્થૂળ, સૂક્ષ્મ અને કારણ – એ જે ત્રણ દેહ તે થકી વિલક્ષણ એવો જે પોતાનો જીવાત્મા, તેને બ્રહ્મરૂપની ભાવના કરીને પછી તે બ્રહ્મરૂપે કરીને શ્રીકૃષ્ણ ભગવાનની ભક્તિ જે તે સર્વ કાળને વિષે કરવી.
+
+* **Lipi:**  Ane sthool, sookshma, ane kaaran – e je tran deh te thaki vilakshan aevo je potano jivatma, tene brahmaroopni bhavna karine pachi te brahmaroope karine Shree Krishna Bhagwan ni bhakti je te sarv kaalne vishe karvee.
+
+ * **English:**  And one shall consider one’s jeev as distinct and above the three forms of body – sthool (visible), shukshma (invisible soul) and karan (root of any cause). Even though the jeev is in Brahm form, it shall always worship Shree Krishna Bhagwan. 
+
+---
+
+**117.**
+
+* **Gujarati:** અને શ્રીમદ્ ભાગવત પુરાણનો જે દશમસ્કંધ તે જે તે નિત્ય પ્રત્યે આદર થકી સાંભળવો અથવા વર્ષો -વર્ષ એકવાર સાંભળવો અને જે પંડિત હોય તેમણે નિત્ય પ્રત્યે વાંચવો અથવા વર્ષો-વર્ષ એકવાર વાંચવો. 
+
+* **Lipi:**  Ane Shreemad Bhagwat Puran no je dashamskand te je te nitya pratye aadar thaki sambhalvo athava varsho-varsh ekvaar sambhalvo ane je pandit hoy temne nitya pratye vaanchvo athava varsho-varsh ekvaar vaanchvo. 
+
+ * **English:** And my aashrits shall listen, with reverence, to the dashma (tenth) skanda of Shreemad Bhagwat Puran everyday or once a year. Pandits (scholars) shall read it daily or once a year. 
+
+---
+
+**118.**
+
+* **Gujarati:** અને એ જે દશમસ્કંધ તેનું પુરશ્ચરણ જે તે પુણ્ય સ્થાનકને વિષે પોતાના સામર્થ્ય પ્રમાણે કરવું-કરાવવું અને વળી વિષ્ણુસહસ્ત્રનામ નામ આદિક જે સત્શાસ્ત્ર, તેનું પુરશ્ચરણ પણ પોતાના સામર્થ્ય પ્રમાણે કરવું-કરાવવું. તે પુરશ્ચરણ કેવું છે તો પોતાના મનવાંછિત ફળને આપે એવું છે. 
+
+* **Lipi:**   Ane e je dashamskand tenu purashcharan je te punya sthānakne vishe potana saamarthy pramaane karvu-karaavvu ane vali Vishnu Sahastranam naam adik je satshastra, tenu purashcharan pan potana saamarthy pramaane karvu-karaavvu. Te purashcharan kevu che to potana manvaanchit phalne ape evu che.
+
+ * **English:** And they shall arrange a parayaan (holy recitation) of the dashma skanda, Vishnusahastranaam and other shastras. It should be performed in a tirthsthan (holy place) according to their capabilities, as these parayaans help them to attain their desired goal. 
+
+---
+
+**119.**
+
+* **Gujarati:** અને કષ્ટની દેનારી એવી કોઈ દેવ સંબંધી આપદા આવી પડે તથા મનુષ્ય સંબંધી આપદા આવી પડે તથા રોગાદિક આપદા આવી પડે તેને વિષે જેમ પોતાની ને બીજાની રક્ષા થાય તેમ વર્તવું પણ બીજી રીતે ન વર્તવું. 
+
+* **Lipi:**  Ane kasht ni denaari evo koi dev sanbandhi aapad aavi pade tatha manushya sanbandhi aapad aavi pade tatha rogaadik aapad aavi pade tene vishe je potani ne bijani raksha thaay tem varthavu pan beji rithe n varthavu.
+
+ * **English:**  And in the event of a calamity, which has befallen naturally or through a person or an epidemic, one shall always act in such a way that one can save one’s own life and also that of others but shall never act carelessly.
+
+---
+
+**120.**
+
+* **Gujarati:** અને આચાર, વ્યવહાર અને પ્રાયશ્ચિત્ત એ જે ત્રણ વાના તે જે તે દેશ, કાળ, અવસ્થા, દ્રવ્ય, જાતિ અને સામર્થ્ય એટલાને અનુસારે કરીને જાણવા. 
+
+* **Lipi:** Ane aachar, vyavhaar ane prayashchitt e je tran vaana te je te desh, kaal, avastha, dravya, jaati ane saamarthy etalane anusaare karine jaanva. 
+
+* **English:** And the desh (place), kaal (time), avastha (age), dravya (means), jaati (caste) and capability shall be taken into consideration when deciding upon matters of daily rites and rituals, secular business affairs. 
  
