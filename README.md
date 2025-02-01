@@ -475,6 +475,7 @@
 * **Lipi:** Anē tē vāra pachhī pavitra pṛthvīnē viṣē pātharyu anē śuddha nē kō'ī bījā āsananē aḍyuṁ n a hōy anē jē upara sārī pēṭhē bēsāy ēvu jē āsana tēnē viṣē pūrvamukhē athavā uttaramukhē bēsīnē ē ācamana karvū. 
 
 * **English:** And then they shall sit cross-legged on the floor in a clean place, on a clean and suitable cloth, untouched by others or any other thing, facing north or east, shall perform achaman (purification ritual of sipping water 3 times)
+
 ---
 
 **52.**  
@@ -483,6 +484,7 @@
 * **Lipi:** Anē pachhī satsaṅgī puruṣamātra nē chāndalē sahita ūrdhvapuṇḍra tilaka karvū anē suvāsinī jē strī'ō, tēmaṇē tō pōtānā bhālanē visē kuṅkuma no chāndalō karvū
 
 * **English:** And all my male aashrit shall mark their foreheads with a tilak and a chandlo in the center of it. All married women shall make only a chandlo of Kum-Kum on their forehead. 
+
 ---
 
 **53.**  
@@ -491,6 +493,7 @@
 * **Lipi:** Anē tē vi dhavā strī'ō mātrānē pōtānā bhālanē visē tilaka na karvū nē chāndalō paṇa na karvū, anē tē pachhī tē sarvē jē amārā satsaṅgī, tēmaṇē manē karīnē kalpyā jē chandana puṣpādika upacāra tēmaṇē karīnē śrīkṛṣṇa bhagavānnī mānasī pūjā karvī.
 
 * **English:** And all my female aashrit who are widows shall not mark their foreheads with either a tilak or chandlo. They shall then meditate upon Shree Krishna Bhagwan and perform mansi puja by mentally offering sandalwood, flowers etc.
+
 ---
 
 **54.**  
@@ -499,6 +502,7 @@
 * **Lipi:** Anē tē pachhī śrīrādhākṛṣṇanī jē citra pratimā tēnu ādara thakī darśana karīnē namaskāra karīnē pachhī potānā sāmarthya pramāṇē śrīkṛṣṇano jē aṣṭākṣara mantra tēno jap karīnē tē pachhī potānū vyavahārik kāmakāj karvū.
 
 * **English:** And then they shall, with due respect, bow down before the images of Shree Radha Krishna Dev and recite Ashtaakshar mantra (eight syllabled holy Mantra of Shree Krishna Bhagwan given by diksha guru (Acharya)) according to their capacity and then perform their daily routines.
+
 ---
 
 **55.**  
@@ -516,6 +520,7 @@
 * **Lipi:** Ane te je ātmanivēdī bhakta temṇē pāṣāṇnī athavā dhātunī je śrīkṛṣṇa bhagavānnī pratimā athavā śāligrāma, tenī je pūjā te deśakālēnē anusārīnē pōtānā sāmarthyapramaṇē prāpt thyāṁ je chandana, puṣpa, phalādika vastu tenē karīnē karvī ane pachhī śrīkṛṣṇa bhagavānnō je aṣṭākṣara mantra tenō jap karvō.
 
 * **English:** And my Atmanivedi bhakts shall worship Shaligram or the idol of Shree Krishna Bhagwan made from stone or metal, with offerings of sandalwood, flowers, fruits etc. as per avilability at the time. Then they shall recite the Ashtaakshar mantra as per their capacity.
+
 ---
 
 **57.**  
