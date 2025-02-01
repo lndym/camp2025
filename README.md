@@ -1664,3 +1664,214 @@
 * **English:**   And they shall never associate with, nor even touch women who practice abortion; and they shall not indulge in or listen to lustful conversations regarding males.
 
   ---
+
+**171.**  
+
+* **Gujarati:** અને યુવા અવસ્થાને વિષે રહી એવી જે વિધવા સ્ત્રીઓ, તેમણે યુવા અવસ્થાવાળા જે પોતાના સંબંધી પુરુષ તેમની સંગાથે પણ એકાંતસ્થળને વિષે આપત્કાળ પડ્યા વિના ન રહેવું
+
+* **Lipi:** Ane yuva avasthane vise rahi evi je vidhva strio, temane yuva avasthavala je potana sambandhi purush temne sangath e ekantsthalne vise apatkal padya vina na rahevu.
+
+* **English:** And except in the case of an emergency, young widows shall never stay in a secluded place with young men, even though they may be closely related. 
+
+---
+
+**172.**  
+
+* **Gujarati:** અને હોળીની રમત ન કરવી ને આભૂષણાદિકનું ધારણ ન કરવું અને સુવર્ણાદિક ધાતુના તારે યુક્ત એવા જે ઝીણાં વસ્ત્ર તેનું ધારણ પણ ક્યારેય ન કરવું. 
+
+* **Lipi:** Ane holi ni ramat na karvi ne abhushanadiknu dharan na karvu ane suvarnadi dhatuna tare yukt evo je zhina vastro tenun dharan pan kyare na karvu. 
+
+* **English:** And widowed women shall never play Holi or participate in similar festivities, nor shall they dress themselves with ornaments and/or wear transparent clothes interwoven with precious metals. 
+
+---
+
+**173.**  
+
+* **Gujarati:**  અને સુવાસિની ને વિધવા એવી જે સ્ત્રીઓ તેમણે વસ્ત્રો પહેર્યા વિના નહાવું નહિ અને પોતાનું જે રજસ્વલાપણું તે કોઈ પ્રકારે ગુપ્ત ન રાખવું.
+
+* **Lipi:**  Ane suvasini ne vidhva evi je strio, te vastro paherya vina navu ane potanu je rajswalapnu te koi prakare gupt na rakhvu. 
+
+* **English:**  And all married and widowed women shall never bathe without wearing clothes and shall not hide their rajaswalapanu (periodical menses). 
+
+---
+
+**174.**  
+
+* **Gujarati:**  અને વળી રજસ્વલા એવી જે સુવાસિની અને વિધવા સ્ત્રીઓ, તે ત્રણ દિવસ સુધી કોઈ મનુષ્યને તથા વસ્ત્રાદિકને અડે નહિ અને ચોથે દિવસે નાહીને અડવું. (એવી રીતે ગૃહસ્થાશ્રમી એવા જે પુરુષ અને સ્ત્રીઓ તેમના જે આ વિશેષ ધર્મ કહ્યા તે સર્વે ધર્મવંશી આચાર્ય અને તેમની પત્નીઓ તેમણે પણ પાળવા, કેમ કે એ ગૃહસ્થ છે.) 
+
+* **Lipi:**   Ane vali rajswala evi je suvasini ane vidhva strio, te tran divas sudhi koi manushyane tatha vastradikne ade nahine chothe divase nahine adavu. (Evi rite grhasthashrami je purush ane strio temna je a vishes dharm kahya te sarve dharmavanshi acharya ane temni patniyo temne pan palva, kem ke e grhasth che.)
+
+* **English:** And married and widowed women during periodical menses should not touch anybody and/or clothes for the first three days, but may do so after bathing on the fourth day. (Thus the specific Dharmas of gruhasts are described. These Dharmas should be observed by all Acharyas and their wives, as they are gruhasts too)
+
+---
+
+**175.**  
+
+* **Gujarati:**   હવે નૈષ્ઠિક બ્રહ્મચારીના જે વિશેષ ધર્મ તે કહીએ છીએ. અમારે આશ્રિત એવા જે નૈષ્ઠિક બ્રહ્મચારી તેમણે સ્ત્રી માત્રનો સ્પર્શ ન કરવો; અને સ્ત્રીઓ સંગાથે બોલવું નહિ, અને જાણીને તે સ્ત્રીઓ સન્મુખ જોવું નહિ. 
+
+* **Lipi:** Have naishtik brahmacharina je vise dharm kehie che. Amare ashrita eva je naishtik brahmachari temne stri matrano sparsh n karvo; ane strio sangathe bolvu nahi, ane janine te strio sanmukh jovu nahi.
+
+* **English:** Now I narrate the specific dharmas of Naishthik Brahmacharis. All Naishthik Brahmacharis who are my aashrits, shall never touch, talk nor intentionally look at any female. 
+
+---
+
+**176.**  
+
+* **Gujarati:** અને તે સ્ત્રીઓની વાર્તા ક્યારેય ન કરવી અને ન સાંભળવી; અને જે સ્થાનકને વિષે સ્ત્રીઓનો પગફેર હોય, તે સ્થાનકને વિષે સ્નાનાદિક ક્રિયા કરવા ન જવું. 
+
+* **Lipi:**  Ane te striyoni varta kyarey na karvi ane na sambhavi; ane je sthanakne vishe striono pagapher hoy, te sthanakne vishe snanadi kriya karva na ju. 
+
+* **English:** And they shall never talk of females nor listen to talks about females and shall not bathe at places where women frequently visits. 
+
+---
+
+**177.**  
+
+* **Gujarati:**  અને દેવતાની પ્રતિમા વિના બીજી જે સ્ત્રીની પ્રતિમા, ચિત્રની અથવા કાષ્ઠાદિકની હોય તેનો સ્પર્શ ન કરવો; અને જાણીને તો તે પ્રતિમાને જોવી પણ નહિ. 
+
+* **Lipi:** Ane devtanī pratimā vinā bījī je strīnī pratimā, citr-nī athvā kāṣṭhādīk-nī hoy teno spars̱ẖa na karvo; ane jāṇīne to te pratimāne jovi pan nahi. 
+
+* **English:** And they shall never touch nor purposely look at images of females, pictures or murtis made from fibers except those of Devis (goddesses). 
+
+---
+
+**178.**  
+
+* **Gujarati:** અને તે નૈષ્ઠિક બ્રહ્મચારી તેમણે સ્ત્રીની પ્રતિમા ન કરવી, અને સ્ત્રીએ પોતાના શરીર ઉપર ધારેલું જે વસ્ત્ર તેને અડવું નહિ; અને મૈથુનાસક્ત એવાં જે પશુ-પક્ષી આદિક પ્રાણી માત્ર, તેમને જાણીને જોવા નહિ.
+
+* **Lipi:**  Ane te naishtik brahmachārī temne strīnī pratimā na karvi, ane strīe potānā sharīr upar dhāreluṁ je vastr tene aḍavu nahi; ane maithunāsakta evāṁ je paśu-pakṣī ādik prāṇī mātra, temne jāṇīne jova nahi. 
+
+* **English:**  And Naishthik Brahmacharis should never draw images of women and never touch clothes worn or touched by women; and they should never deliberately look at any creature in the act of procreation. 
+
+---
+
+**179.** 
+
+* **Gujarati:** અને સ્ત્રીના વેષને ધરી રહ્યો એવો જે પુરુષ તેને અડવું નહિ અને તેની સામું જોવું નહિ; અને તે સાથે બોલવું નહિ અને સ્ત્રીનો ઉદ્દેશ કરીને ભગવાનની કથા, વાર્તા, કીર્તન પણ ન કરવા. 
+
+* **Lipi:**  Ane strīnā ves̱ẖane dhari rahyo evo jo puruṣ teno aḍavu nahi ane teni sāmu jovu nahi; ane te sāthē bolvu nahi ane strīno upadesha karīne Bhagwān-nī kathā, vārtā, kīrtan pan na karva.
+
+* **English:**  And they shall never look at nor talk to a man who is disguised as a female; and they shall not do katha-varta (preach) or sing kirtans directed at females. 
+
+---
+
+**180.** 
+
+* **Gujarati:** અને તે નૈષ્ઠિક બ્રહ્મચારી, તેમણે પોતાના બ્રહ્મચર્ય વ્રતનો ત્યાગ થાય એવું જે વચન તે તો પોતાના ગુરુનું પણ ન માનવું; ને સદાકાળ ધીરજવાન રહેવું અને સંતોષે યુક્ત રહેવું ને માને રહિત રહેવું 
+
+* **Lipi:**  Ane te naishtik brahmachārī, temne potānā brahmachary vratanō tyāg, thāy evo jo vachana to te potānā guru-nu pun na mānvu; ne sadākāla dhīrajvān rehvu ane santōṣē yukta rehvu ne mānē rahit rehvu 
+
+* **English:**  And Naishthik Brahmacharis shall not consider any command that violates their celibacy, even if the command is given by their guru; they shall have qualities like patience and humility. 
+
+---
+
+**181.** 
+
+* **Gujarati:**  અને બળાત્કારે કરીને પોતાને અતિશય સમીપે આવતી એવી જે સ્ત્રી તેને બોલીને અથવા તિરસ્કાર કરીને પણ તુરત વારવી, પણ સમીપે આવવા દેવી નહિ 
+
+* **Lipi:** Ane balātkaṛē karīne potānē atishaya samīpē āvatī evo jo strī tenē bolīne athavā tīraskāra karīne paṇ turata vārvī, pan samīpē āvavā dēvī nahi 
+
+* **English:** And if a woman forcibly or deliberately comes close to them, they should stop her, by either talking to her or turning her away immediately, but never allowing her to come near. 
+
+---
+
+**182.** 
+
+* **Gujarati:** અને જો ક્યારેક સ્ત્રીઓનો અથવા પોતાનો પ્રાણ નાશ થાય, એવો આપત્કાળ આવી પડે, ત્યારે તો તે સ્ત્રીઓને અડીને અથવા તે સાથે બોલીને પણ તે સ્ત્રીઓની રક્ષા કરવી અને પોતાની પણ રક્ષા કરવી.
+
+* **Lipi:** Ane jo kyārēk strīōnō athavā potānō prāṇa nāśa thāy, evo āpatkāla āvī paḍē, tyārē to tē strīōnē adīnē athavā tē sāthē bolīne paṇ tē strīōnī rakṣā karvī ane potānī pan rakṣā karvī. 
+
+* **English:** And if there is an emergency where a woman’s or their own life is at risk, then they may talk to the woman and/or touch her to protect her and themselves. 
+
+---
+
+**183.** 
+
+* **Gujarati:** અને તે નૈષ્ઠિક બ્રહ્મચારી તેમણે પોતાને શરીરે તૈલમર્દન ન કરવું ને આયુધ ન ધારવું, ને ભયંકર એવો જે વેષ તે ન ધારવો અને રસના ઇન્દ્રિયને જીતવી 
+
+* **Lipi:** Ane te naishtik brahmachārī, temne potānē sharīrē tailamardana na karvu nē āyudha na dhārvu, nē bhayankara evo jo vēṣ tē na dhārvu ane rasanā indriyanē jītavī
+
+* **English:** And those who are Naishthik Brahmacharis shall not massage their bodies with oil, carry arms, and/or dress in frightful clothes; and they shall always keep their sense of taste under control. 
+
+---
+
+**184.** 
+
+* **Gujarati:**  અને જે બ્રાહ્મણના ઘરને વિષે સ્ત્રી પીરસનારી હોય, તેને ઘેર ભિક્ષા કરવા જવું નહિ ને જ્યાં પુરુષ પીરસનારો હોય ત્યાં જવું 
+
+* **Lipi:** Ane je brāhmaṇanā gharnē vishe strī pīrasanārī hōy, tenē gher bhikshā karvā juṁ nahi ne jyāṁ puruṣ pīrasanārō hōy tyāṁ javāṁ 
+
+* **English:** And they shall never go to those Brahmin’s homes where alms are served by females, instead they shall receive alms where it is served by males. 
+
+---
+
+**185.** 
+
+* **Gujarati:**  અને તે નૈષ્ઠિક બ્રહ્મચારી, તેમણે વેદશાસ્ત્રનો અભ્યાસ કરવો ને ગુરુની સેવા કરવી; ને સ્ત્રીઓની પેઠે જ સ્ત્રૈણ પુરુષનો સંગ, જે તે સર્વકાળે વર્જવો 
+
+* **Lipi:**  Ane te naishtik brahmachārī, temnē veḍaśāstranō abhyāsa karvō nē gurunī sevā karvī; nē strīōnī pēṭhē jē straiṇa puruṣanō sanga, jē tē sarvakālē varjvō 
+
+* **English:** And those that are Naishthik Brahmacharis, shall study the Vedas and Shastras and serve their Guru. They shall never associate with effeminate males, just as they would never associate with females. 
+
+---
+
+**186.** 
+
+* **Gujarati:**  અને જાતિએ કરીને જે બ્રાહ્મણ હોય, તે કોઈએ પણ ચર્મવારી ન પીવું ને ડુંગળી ને લસણ આદિક જે અભક્ષ્ય વસ્તુ તે બ્રાહ્મણ જાતિ હોય તેણે કોઈ પ્રકારે ન ખાવી. 
+
+* **Lipi:** Ane jātiē karīne je brāhmaṇ hōy, tē kō'īē paṇ charmavārī na pīvu, nē ḍuṅgaḷī nē lasaṇ ādika je abhakṣya vastu tē brāhmaṇ jāti hōy tēṇe kō'ī prakāra nā khāvī. 
+
+* **English:**  And those who are Brahmins by caste, shall never drink water which has been passed through a leather vessel and they shall never consume foods like onion and/or garlic.
+
+---
+
+**187.** 
+
+* **Gujarati:**   અને જે બ્રાહ્મણ હોય તેણે સ્નાન, સંધ્યા ગાયત્રીનો જપ, શ્રીવિષ્ણુની પૂજા અને વૈશ્વદેવ એટલા વાના કર્યા વિના ભોજન કરવું જ નહિ. (એવી રીતે નૈષ્ઠિક બ્રહ્મચારીના વિશેષ ધર્મ કહ્યા.) 
+
+* **Lipi:** Ane je brāhmaṇ hōy tēṇe snāna, sandhyā gāyatrinō jap, śrīviṣṇunī pūjā ane vaishvadēva atlā vānā karyā vinā bhojan karvuṁ j nahi. (Ēvī rītē naishtik brahmachārīnā visheṣa dharam khyā.) 
+
+* **English:** And those who are Brahmins, shall never take their meal without taking a bath, doing Sandhya puja, Gayatri Mantra Jaap, puja of Shree Vishnu Bhagwan and Vaishvadev (thaal)(Thus the specific Dharmas of Naishthik Brahmachari are described.)
+
+---
+
+**188.** 
+
+* **Gujarati:** હવે સાધુના જે વિશેષ ધર્મ તે કહીએ છીએ; અમારે આશ્રિત જે સર્વે સાધુ તેમણે નૈષ્ઠિક બ્રહ્મચારીની પેઠે સ્ત્રીઓનાં દર્શન-ભાષણાદિક પ્રસંગનો ત્યાગ કરવો તથા સ્ત્રૈણ પુરુષના પ્રસંગાદિકનો ત્યાગ કરવો; અને અંત: શત્રુ જે કામ, ક્રોધ, લોભ અને માન આદિક તેમને જીતવા 
+
+* **Lipi:** Have sādhuṇā jē visheṣa dharam tē kahī'ē chhī'ē; amārē āśrita jē sarvē sādhu tēmaṇē naishtik brahmachārīnī pēṭhē strīōnāṁ darśana-bhāṣhaṇādika prasaṅganō tyāga karvuṁ tathā straiṇa puruṣanā prasaṅgādikanō tyāga karvuṁ; ane antaḥ-śhatru jē kāma, krōdha, lōbha ane māna ādika tēmane jītavā 
+
+* **English:**  Now the specific Dharmas of Sadhus are being described; just as Naishthik Brahmacharis, Sadhus shall avoid association with females and effeminate males. Just as Naishthik Brahmcharis, Sadhus shall avoid seeing and talking with females and effeminate males; and they shall conquer inner enemies like kaam (lust), krodh (anger), lobh (greed), maan (pride) etc. 
+
+---
+
+**189.** 
+
+* **Gujarati:** અને સર્વે જે ઇન્દ્રિયો તે જીતવી ને રસના ઇન્દ્રિયને તો વિશેષે કરીને જીતવી; અને દ્રવ્યનો સંગ્રહ પોતે કરવો નહિ ને કોઈ બીજા પાસે પણ કરાવવો નહિ. 
+
+* **Lipi:**  Ane sarvē jē indriyō tē jītavī nē rasanā indriyanē tō visheṣē karīnē jītavī; ane dravyanō saṅgraha pōthē karvō nahi nē kō'ī bījā pāsē paṇ kařvavō nahi. 
+
+* **English:** And they shall control their indriyo (senses), especially the sense of taste; And they shall not accumulate wealth or ask others to do so on their behalf. 
+
+
+---
+
+**190.** 
+
+* **Gujarati:** અને કોઈની થાપણ ન રાખવી અને ક્યારેય પણ ધીરજતાનો ત્યાગ ન કરવો અને પોતાના ઉતારાની જાયગા બંધિની હોય તો તેને વિષે ક્યારેય પણ સ્ત્રીનો પ્રવેશ થવા દેવો નહિ.
+
+* **Lipi:**  Ane kō'īnī thāpaṇ na rākhavī ane kyārē pana dhīrajatānō tyāga na karvō ane potānā utārānī jāgayā bandhinī hōy tō tēnē vishe kyarē pana strīnō pravesha thavā dēvō nahi. 
+
+* **English:**  And they shall never accept deposits from others, never lose their patience and shall never allow a female to enter their place of residence. 
+
+---
+
+**191.** 
+
+* **Gujarati:**  અને તે સાધુ તેમણે, આપત્કાળ પડ્યા વિના રાત્રીને વિષે સંઘ સોબત વિનાનું ચાલવું નહિ તથા આપત્કાળ પડ્યા વિના ક્યારેય પણ એકલા ચાલવું નહિ. 
+
+* **Lipi:**   Ane tē sādhu tēmaṇē, āpatkāla padyā vinā rātrīnē vishe santa sobata vinānu chālvaṁ nahi tathā āpatkāla padyā vinā kyārē pana ēkalā chālvaṁ nahi. 
+
+* **English:**  And except in the case of an emergency, Sadhus shall never go out alone at night nor shall they go out any other times without the companion of other Sadhus.
+
+---
