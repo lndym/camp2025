@@ -467,3 +467,89 @@
 * **English:** And thereafter, sitting in one place, they shall brush their teeth, bathe with clean water, and then wear one washed cloth around the waist and one around the upper part of the body.
 
 ---
+
+
+**51.**  
+* **Gujarati:** અને તે પછી પવિત્ર પૃથ્વીને વિષે પાથરેલુ અને શુદ્ધ કોઈ બીજા આસનને અડ્યું ન હોય અને જે ઉપર સારી પેઠે બેસાય એવું જે આસન તેને વિષે પૂર્વમુખે અથવા ઉત્તરમુખે બેસીને આચમન કરવું.
+
+* **Lipi:** Anē tē vāra pachhī pavitra pṛthvīnē viṣē pātharyu anē śuddha nē kō'ī bījā āsananē aḍyuṁ n a hōy anē jē upara sārī pēṭhē bēsāy ēvu jē āsana tēnē viṣē pūrvamukhē athavā uttaramukhē bēsīnē ē ācamana karvū. 
+
+* **English:** And then they shall sit cross-legged on the floor in a clean place, on a clean and suitable cloth, untouched by others or any other thing, facing north or east, shall perform achaman (purification ritual of sipping water 3 times)
+---
+
+**52.**  
+* **Gujarati:** અને પછી સત્સંગી પુરૂષમાત્રને ચાંદલે સહિત ઊર્ધ્વપુંડ્ર તિલક કરવું અને સુવાસિની જે સ્ત્રીઓ, તેમણે તો પોતાના ભાલને વિષે કુંકુમનો ચાંદલો કરવો.
+
+* **Lipi:** Anē pachhī satsaṅgī puruṣamātra nē chāndalē sahita ūrdhvapuṇḍra tilaka karvū anē suvāsinī jē strī'ō, tēmaṇē tō pōtānā bhālanē visē kuṅkuma no chāndalō karvū
+
+* **English:** And all my male aashrit shall mark their foreheads with a tilak and a chandlo in the center of it. All married women shall make only a chandlo of Kum-Kum on their forehead. 
+---
+
+**53.**  
+* **Gujarati:** અને વિધવા સ્ત્રીઓએ પોતાના ભાલને વિષે તિલક ન કરવું ને ચાંદલો પણ ન કરવો, તે પછી તે સર્વે જે અમારા સત્સંગી, તેમણે મને કરીને કલ્પ્યાં જે ચંદન પુષ્પાદિક ઉપચાર તેમણે કરીને શ્રીકૃષ્ણ ભગવાનની માનસી પૂજા કરવી.
+
+* **Lipi:** Anē tē vi dhavā strī'ō mātrānē pōtānā bhālanē visē tilaka na karvū nē chāndalō paṇa na karvū, anē tē pachhī tē sarvē jē amārā satsaṅgī, tēmaṇē manē karīnē kalpyā jē chandana puṣpādika upacāra tēmaṇē karīnē śrīkṛṣṇa bhagavānnī mānasī pūjā karvī.
+
+* **English:** And all my female aashrit who are widows shall not mark their foreheads with either a tilak or chandlo. They shall then meditate upon Shree Krishna Bhagwan and perform mansi puja by mentally offering sandalwood, flowers etc.
+---
+
+**54.**  
+* **Gujarati:** અને તે પછી જે શ્રીરાધાકૃષ્ણની ચિત્રપ્રતિમા તેનું આદર થકી દર્શન કરીને નમસ્કાર કરીને પછી પોતાના સામર્થ્ય પ્રમાણે શ્રીકૃષ્ણનો જે અષ્ટાક્ષર મંત્ર તેનો જપ કરીને તે પછી પોતાનું વ્યવહારિક કામકાજ કરવું.
+
+* **Lipi:** Anē tē pachhī śrīrādhākṛṣṇanī jē citra pratimā tēnu ādara thakī darśana karīnē namaskāra karīnē pachhī potānā sāmarthya pramāṇē śrīkṛṣṇano jē aṣṭākṣara mantra tēno jap karīnē tē pachhī potānū vyavahārik kāmakāj karvū.
+
+* **English:** And then they shall, with due respect, bow down before the images of Shree Radha Krishna Dev and recite Ashtaakshar mantra (eight syllabled holy Mantra of Shree Krishna Bhagwan given by diksha guru (Acharya)) according to their capacity and then perform their daily routines.
+---
+
+**55.**  
+* **Gujarati:** અને જે અમારા સત્સંગિમાં અંબરીષ રાજાની પેઠે આત્મનિવેદી એવા ઉત્તમ ભક્ત હોય તેમણે પણ પ્રથમ કહ્યું તેવી રીતે અનુક્રમે કરીને માનસી પૂજા પર્યન્ત સર્વે ક્રિયા કરવી.
+
+
+* **Lipi:** Anē jē amārā satsaṅgīmāṁ ambarīṣa rājānī pēṭhē ātmanivēdi ēvu uttam bhakta hōy tēmaṇē paṇa pratham kahyuṁ tēvī rītē anukramē karīnē mānasī pūjā paryanta sarvē kriyā karvī.
+
+* **English:** And those of my aashrits who are Atmanivedi (dedicated their lives to the seva of Bhagwan) like king Ambarisha, shall also perform the sequence of rituals as described above, up to the meditation upon Shree Krishna Bhagwan.
+---
+
+**56.**  
+* **Gujarati:** અને તે જે આત્મનિવેદી ભક્ત તેમણે પાષાણની અથવા ધાતુની જે શ્રીકૃષ્ણ ભગવાનની પ્રતિમા અથવા શાલિગ્રામ તેની જે પૂજા તે દેશકાળને અનુસરીને પોતાના સામર્થ્ય પ્રમાણે પ્રાપ્ત થયાં જે ચંદન, પુષ્પ, ફળાદિક વસ્તુ તેણે કરીને કરવી, અને પછી શ્રીકૃષ્ણ ભગવાનનો જે અષ્ટાક્ષર મંત્ર તેનો જપ કરવો. 
+
+* **Lipi:** Ane te je ātmanivēdī bhakta temṇē pāṣāṇnī athavā dhātunī je śrīkṛṣṇa bhagavānnī pratimā athavā śāligrāma, tenī je pūjā te deśakālēnē anusārīnē pōtānā sāmarthyapramaṇē prāpt thyāṁ je chandana, puṣpa, phalādika vastu tenē karīnē karvī ane pachhī śrīkṛṣṇa bhagavānnō je aṣṭākṣara mantra tenō jap karvō.
+
+* **English:** And my Atmanivedi bhakts shall worship Shaligram or the idol of Shree Krishna Bhagwan made from stone or metal, with offerings of sandalwood, flowers, fruits etc. as per avilability at the time. Then they shall recite the Ashtaakshar mantra as per their capacity.
+---
+
+**57.**  
+* **Gujarati:** અને તે પછી શ્રીકૃષ્ણ ભગવાનના જે સ્તોત્ર અથવા ગ્રંથ તેનો જે પાઠ તે પોતાના સામર્થ્ય પ્રમાણે કરવો, અને જે સંસ્કૃત ન ભણ્યા હોય તેમણે શ્રીકૃષ્ણ ભગવાનનું નામ કીર્તન કરવું. 
+
+* **Lipi:** Ane te pachhī śrīkṛṣṇa bhagavānnā je stōtra athavā grantha tenō je pāṭha te pōtānā sāmarthyapramaṇē karvō, ane je sanskrit n bhanyā hoy temṇē śrīkṛṣṇa bhagavānnuṁ nāma kīrtana karvū.
+
+* **English:**  And all aashrits shall then read stotra (hymns) or the shastras about Shree Krishna Bhagwan according to their ability. Those who do not know Sanskrit shall sing kirtans in praise of Shree Krishna Bhagwan and chant his name. 
+
+---
+
+**58.**  
+* **Gujarati:** અને પછી શ્રીકૃષ્ણ ભગવાનને નૈવેદ્ય કરીને પછી તે પ્રસાદિ એવું જે અન્ન તે જમવું અને તે જે આત્મનિવેદી વૈષ્ણવ તેમણે સર્વકાળને વિષે પ્રીતિએ કરીને શ્રીકૃષ્ણ ભગવાનની સેવાપરાયણ થવું.
+
+* **Lipi:** Ane pachhī śrīkṛṣṇa bhagavānnenai naivēdya karīnē pachhī te prasādī evuṁ je anna te jamavuṁ ane te je ātmanivēdī vaiṣṇava temṇē sarvakālnē viṣē prītiē karīnē śrīkṛṣṇa bhagavānnī sevāparāyaṇ thavuṁ. 
+
+* **English:**  And then they shall offer naivedya (food) to him and then shall eat it after, accepting it as prasad, and they shall thus always remain in service of Shree Krishna Bhagwan with love. |
+
+---
+
+**59.**  
+* **Gujarati:** અને નિર્ગુણ કહેતાં માયાના જે સત્વાદિક ત્રણ ગુણ  તેણે રહિત એવા જે શ્રીકૃષ્ણ ભગવાન, તેના સંબંધ થકી તે આત્મનિવેદી ભક્તની જે સર્વે ક્રિયા તે નિર્ગુણ થાય છે તે હેતુ માટે તે આત્મનિવેદી ભક્ત જે તે નિર્ગુણ કહ્યા છે. 
+
+* **Lipi:** Ane nirguṇa kahetāṁ māyānā je satvādika traṇa guṇ tenē rahit ēvā je śrīkṛṣṇa bhagavān, tenā sambandha thakī te ātmanivēdī bhakta nī je sarvē kriyā ten nirguṇa thāy che tahētu māṭē te ātmanivēdī bhakta je te nirguṇa kahyā che. 
+
+* **English:**  And these Atmanivedi bhakts are considered as nirgun (free from the three qualities of maya: satvik, rajas and tamas) because all their deeds are purified by their continuous and devout connection with Shree Krishna Bhagwan who is always nirgun.
+
+---
+
+**60.**  
+* **Gujarati:** અને એ જે આત્મનિવેદી ભક્ત, તેમણે શ્રીકૃષ્ણ ભગવાનને અર્પણ કર્યા વિનાનું જળ પણ ક્યારેય ન પીવું અને પત્ર, કંદ ફળાદિક જે વસ્તુ તે પણ શ્રીકૃષ્ણ ભગવાનને અર્પણ કર્યા વિનાનું ન ખાવું.
+
+* **Lipi:** Ane ē je ātmanivēdī bhakta, temṇē śrīkṛṣṇa bhagavānnē arpṇa karyā vinānuṁ jal paṇ kyarē n piyuṁ ane patra, kanda, phalādika je vastu te paṇ śrīkṛṣṇa bhagavānnē arpṇa karyā vinānuṁ n khāvuṁ. 
+
+* **English:**  And these Atmanivedi bhaktas shall never drink water nor shall eat leaves, fruits, roots, etc., without first offering it to Shree Krishna Bhagwan.
+
+---
