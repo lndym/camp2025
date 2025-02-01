@@ -1150,7 +1150,114 @@
 
 **120.**
 
-* **Gujarati:** અને આચાર, વ્યવહાર અને પ્રાયશ્ચિત્ત એ જે ત્રણ વાના તે જે તે દેશ, કાળ, અવસ્થા, દ્રવ્ય, જાતિ અને સામર્થ્ય એટલાને અનુસારે કરીને જાણવા. 
+* **Gujarati:** અને આચાર, વ્યવહાર અને પ્રાયશ્ચિત્ત એ જે ત્રણ વાના તે જે તે દેશ, કાળ, અવસ્થા, દ્રવ્ય, જાતિ અને સામર્થ્ય એટલાને અનુસારે કરીને જાણવા.
+
+* **Lipi:** Ane aachar, vyavhaar ane prayashchitt e je tran vaana te je te desh, kaal, avastha, dravya, jaati ane saamarthy etalane anusaare karine jaanva.
+
+* **English:** And the desh (place), kaal (time), avastha (age), dravya (means), jaati (caste) and capability shall be taken into consideration when deciding upon matters of daily rites and rituals, secular business affairs
+
+  
+---
+
+**121.**  
+
+* **Gujarati:** અને અમારો જે મત તે વિશિેષ્ટાદ્વૈત છે એમ જાણવું ; અને અમને પ્રિય એવું જે ધામ તે ગોલોક છે એમ જાણવું અને તે ધામને વિષે બ્રહ્મરૂપે કરીને જે શ્રીકૃષ્ણભગવાનની સેવા કરવી તે અમે મુક્તિ માની છે એમ જાણવું. 
+
+
+* **Lipi:** Ane amaro je mat te vishishtadwait che em jaanvu; ane amne priya evo je dhaam te Golok che em jaanvu ane te dhaamne vishe Brahmaroope karine je Shree Krishna Bhagwan ni seva karvi te ame mukti maani che em jaanvu.
+
+* **English:** And my philosophy rests in the theory of Vishishtaadvaita; and Golok is my beloved dham and I believe mukti as being able to serve Shree Krishna Bhagwan as Brahmrup.
+
+---
+
+**122.**  
+
+* **Gujarati:**  અને આ જે પૂર્વે સર્વે ધર્મ કહ્યા તે જે તે અમારા આશ્રિત જે ત્યાગી, ગૃહસ્થ, બાઈ-ભાઈ, સર્વે સત્સંગી તેમના સામાન્ય ધર્મ કહ્યા છે કહેતાં સર્વ સત્સંગી માત્રને સરખા પાળવાના છે અને હવે એ સર્વેના જે વિશેષ ધર્મ છે, તેમને પૃથક્ પૃથક્ પણે કરીને કહીએ છીએ. 
+
+* **Lipi:** Ane aa je purve sarve dharma kehya te je te amara aashrit je te tyagi, grihasth, bai-bhai, sarve satsangi temna saamanya dharma kehya che kehta sarve satsangi maatrane sarakhaa paalvana che ane have e sarve na je vishe vishesha dharma che, tene pruthak pruthak panne kahiye che.
+
+* **English:** And the Dharmas described so far are general, which apply to all my followers: acharyas, tyagis, gruhasts (householders), male, and female, and shall be followed accordingly. I shall now describe their specific Dharmas. 
+
+---
+
+**123.**  
+
+* **Gujarati:**  હવે પ્રથમ ધર્મવંશી જે આચાર્ય અને તેમની પત્નીઓ તેમના જે વિશેષ ધર્મ તે કહીએ છીએ :- અમારા મોટાભાઈ અને નાનાભાઈ – તેના પુત્ર જે અયોધ્યાપ્રસાદ અને રઘુવીર, તેમણે પોતાના સમીપ સંબંધ વિનાની જે બીજી સ્ત્રીઓ તેમને મંત્ર ઉપદેશ ક્યારેય ન કરવો. 
+
+* **Lipi:** Have pratham dharmavanshi je aacharya ane temni patnio te tene vishesha dharma te kaahiye che: - Amara motabhai ane nanabhai – temna putra je Ayodhyaprasaad ane Raghuvir, temne potana saame sanbandh vinaani je biji strioni temne mantra upadesh kyaare na karvo.
+
+* **English:**  Now first, specific dharmas of Acharyas and their wives are being described. Ayodhyaprasad and Raghuvir, sons of my elder and younger brother respectively, shall never give guru mantra to females who are not closely related to them. 
+
+---
+
+**124.**  
+
+* **Gujarati:** અને તે સ્ત્રીઓને ક્યારેય પણ અડવું નહિ અને તે સાથે બોલવું નહિ અને કોઈ જીવને વિષે ક્રૂરપણું ન કરવું અને કોઈની થાપણ ન રાખવી. 
+
+* **Lipi:** Ane te strioni kyaare pan adavu na ane te saath bolvu na ane koi jivane vishe kruurpanu na karvu ane koini thaapan na rakhvi. 
+
+* **English:**  And they shall never touch or talk to females who are not closely related to them and they shall not be cruel to any living being nor accept any deposits from anyone. 
+
+---
+
+**125.**  
+
+* **Gujarati:** અને વ્યવહાર કાર્યને વિષે કેનું પણ જમાનગરૂં ન કરવું અને કોઈ આપત્કાળ આવી પડે તો ભિક્ષા માગીને પોતાનો નિર્વાહ કરીને તે આપત્કાળને ઉલ્લંઘવો. પણ કોઈનું કરજ તો ક્યારેય ન કરવું. 
+
+* **Lipi:**  Ane vyavhaar karyane vishe kenu pan jamaangarum na karvu ane koi aapatkaal aavi pade to bhiksha maagine potano nirvaah karine te aapatkaalne ullangho. Pan koinu karj to kyaare na karvu. 
+
+* **English:** And they shall never stand as surety for others in social matters. In the event of hardship, they shall live on charity but never incur debts. 
+
+
+---
+
+**126.**  
+
+* **Gujarati:**  અને પોતાના જે શિષ્ય, તેમણે ધર્મ નિમિત્તે પોતાને આપ્યું જે અન્ન તે વેચવું નહિ; અને તે અન્ન જૂનું થાય તો તે જૂનું કોઈકને દઈને નવું લેવું અને એવી રીતે જે જૂનાનું નવું કરવું તે વેચ્યું ન કહેવાય. 
+
+* **Lipi:** Ane potānā je śiṣya, temṇe dharma nimitta pōtānē āpyu je anna te vēcavu nahi; ane te anna jūnu thāyu to te jūnu kō'īkane dēīnē navu lēvu ane ēvī rītē je jūnānu navu karvu te vēcyu na kahēvāyu.
+
+* **English:** And they shall never sell food grains offered to them by their aashrits. However, the old grains may be exchanged for new as such exchange is not considered as selling. 
+
+---
+
+**127.**  
+
+* **Gujarati:**  અને ભાદરવા સુદિ ચતુર્થીને દિવસે ગણપતિની પૂજા કરવી તથા આસો વદિ ચતુર્દશીને દિવસે હનુમાનજીની પૂજા કરવી.
+
+* **Lipi:**  Ane bhādarvā sudī chaturthīnē divasē gaṇapatinī pūjā karvī tathā āsō vadu chaturdaśīnē divasē hanumānjīnī pūjā karvī. 
+
+* **English:**  And they shall perform puja of Shree Ganapatiji on the fourth day of the first half of the month of Bhadarva and the puja of Shree Hanumanji on the fourteenth day of the second half of the month of Aaso. 
+
+---
+
+**128.**  
+
+* **Gujarati:**   અને અમારે આશ્રિત જે સર્વે સત્સંગી, તેમના ધર્મની રક્ષા કરવાને અર્થે એ સર્વેના ગુરુપણાને વિષે અમે સ્થાપન કર્યા એવા જે તે અયોધ્યાપ્રસાદ અને રઘુવીર, તેમણે મુમુક્ષુજનને દીક્ષા આપવી.
+
+* **Lipi:** Ane amārē āśrita je sarvē satsaṅgī, temnā dharmnī rakṣā karvānē arthē ē sarvēnā gurupaṇānē visē amē sthāpana karyā ēvā je tē ayōdhyāprasāda ane raghuvīra, temṇē mumukṣujanē dīkṣā āpavī. 
+
+* **English:**  And I have enthroned the two Acharyas, Ayodhyaprasad and Raghuvir as spiritual leaders in order to preserve the dharma of all my aashrits. They shall give diksha (initiate) to those male aashrits.
+
+---
+
+**129.**  
+
+* **Gujarati:**  અને પોતાના આશ્રિત જે સર્વે સત્સંગી તેમને અધિકાર પ્રમાણે પોતપોતાના ધર્મને વિષે રાખવા; અને સાધુને આદર થકી માનવા તથા સત્શાસ્ત્રનો અભ્યાસ આદર થકી કરવો. 
+
+* **Lipi:** Ane potānā āśrita je sarvē satsaṅgī temnē adhikāra pramāṇē potapotānā dharmanē visē rākhvā; ane sādhu nē ādara thakī mānavā tathā satśāstranō abhyāsa ādara thakī karvō. 
+
+* **English:** And they shall ensure that all aashrits conform to their respective dharmas; and they shall treat all sadhus with respect and study the shastras with reverence.
+
+---
+
+**130.**  
+
+* **Gujarati:** અને મોટા જે મંદિર તેમને વિષે અમે સ્થાપન કર્યા એવા જે શ્રી લક્ષ્મીનારાયણ આદિક શ્રીકૃષ્ણના સ્વરૂપ તેમની જે સેવા તે યથાવિધિએ કરીને કરવી 
+
+* **Lipi:** Ane motā je maṇḍir temnē vishe amē sthāpan karyā evā je shrī Lakshmīnārāyaṇ ādik shrīkṛṣhṇnā svarūp temnī je sēvā te yathāvidhiē karīnē karāvī. 
+
+* **English:** And they shall worship and offer seva to the murtis of Shree Laxminarayandev and other swarups (forms) of Shree Krishna Bhagwan installed by me in prominent mandirs. 
 
 * **Lipi:** Ane aachar, vyavhaar ane prayashchitt e je tran vaana te je te desh, kaal, avastha, dravya, jaati ane saamarthy etalane anusaare karine jaanva. 
 
