@@ -1259,7 +1259,207 @@
 
 * **English:** And they shall worship and offer seva to the murtis of Shree Laxminarayandev and other swarups (forms) of Shree Krishna Bhagwan installed by me in prominent mandirs. 
 
-* **Lipi:** Ane aachar, vyavhaar ane prayashchitt e je tran vaana te je te desh, kaal, avastha, dravya, jaati ane saamarthy etalane anusaare karine jaanva. 
 
-* **English:** And the desh (place), kaal (time), avastha (age), dravya (means), jaati (caste) and capability shall be taken into consideration when deciding upon matters of daily rites and rituals, secular business affairs. 
- 
+---
+
+**131.**  
+
+* **Gujarati:** અને ભગવાનના મંદિર પ્રત્યે આવ્યો જે હરકોઇ અન્નાર્થી મનુષ્ય તેની પોતાના સામર્થ્ય પ્રમાણે અન્નના દાને કરીને આદર થકી સંભાવના કરવી
+
+
+* **Lipi:** Ane bhagavān nā maṇḍira pratyē āvyō je harkō'i annārthī manuṣya tēnī potānā sāmarthya pramāṇē anna nē karyīnē adara thakī sambhāvanā karvī 
+
+* **English:** And they shall give food to those people who come to the mandir in need of food and treat them with due hospitality according to their means.
+
+---
+
+**132.**  
+
+* **Gujarati:** અને વિદ્યાર્થી ભણાવ્‍યાની શાળા કરાવીને પછી તેમા એક વિદ્વાન બ્રાહ્મણને રાખીને પૃથ્‍વીને વિષે સદ્વિદ્યાની પ્રવૃતિ કરાવવી, કેમ જે વિદ્યાદાને કરીને મોટું પુણ્ય થાય છે. 
+
+* **Lipi:** Ane vidyārthī bhaṇāv'yanī śhādā karāvīnē pachhī tēmā ēka vidvāna brāhmaṇanē rākhīnē pṛthvīnē visaṇē sadavidyānī pravr̥tī karāvavī, kēma jē vidyādānē karīnē mōṭuṁ punya thāy chē. 
+
+* **English:** And they shall establish educational institutions and appoint Brahmin scholars to impart gnan (knowledge) upon the Earth, as distribution of gnan is an act of punya.
+
+
+---
+
+**133.** 
+
+* **Gujarati:** અને હવે એ અયોધ્‍યાપ્રસાદ અને રઘુવીર એ બન્‍નેની જે પત્‍નીઓ તેમણે પોતપોતાના પતિની આજ્ઞાએ કરીને સ્‍ત્રીઓને જ શ્રીકૃષ્‍ણનાં મંત્રનો ઉપદેશ કરવો પણ પુરુષોને ન કરવો 
+
+* **Lipi:** Ane havē ē ayōdhyāprasāda ane raghuvīra ē bannēnī jē patnīō tēmanē potapotānā patnīnī agyna karīnē śrīkṛṣṇanāṁ mantra nō upadēś karvō paṇa puruṣōnē na karvō 
+
+* **English:**  And the wives of the Acharya, Ayodhyaprasad and Raghuvir, with the permission of their husbands, shall give Shree Krishna mantra to females only. 
+
+---
+
+**134.** 
+
+* **Gujarati:** અને વળી તે બે જણની પત્નિઓ તેમણે પોતાના સમીપ સંબંધ વિનાના જે પુરુષ તેમનો સ્પર્શ કયારેય ન કરવો અને તેમની સાથે બોલવું નહિ. ને તેમને પોતાનુ મુખ પણ ન દેખાડવું. એવી રીતે ધર્મવંશી આચાર્ય અને તેમની પત્નિઓ તેમના જે વિશેષ ધર્મ તે કહ્યા 
+
+* **Lipi:** Ane vaḷī tē bē jaṇnī patnīō tēmanē potapotānā samīpa sambandha vinānā jē puruṣa tēmanō sparś kayārē na karvō ane tēmanī sātha bōlvu nahi. nē tēmanē potapotānū mukha pan na dēkhāḍavu. ēvī rītē dharmavaṅśī ācārya ane tēmanī jē viśēṣa dharma tē kahe 
+
+* **English:** And they shall not touch, talk nor even show their faces to males, except those who are closely related to them. Thus the specific dharmas of Dharmakul are described. 
+
+---
+
+**135.** 
+
+* **Gujarati:** હવે ગૃહસ્‍થાશ્રમીના જે વિશેષ ધર્મ તે કહીએ છીએ. અમારે આશ્રિત જે ગૃહસ્‍થાશ્રમી પુરુષ તેમણે પોતાના સમીપ સંબંધ વિનાની જે વિધવા સ્‍ત્રીઓ તેમનો સ્‍પર્શ ન કરવો. 
+
+* **Lipi:** Have gruhasthāshramīnā je visheṣh dharma te kahīe chhie. Amārē āśrīta jē gruhasthāshramī puruṣ temnē potānā samīp sambandh vinānī je vidhavā gruhasthāshramī temnō sparsh na karavō. 
+
+* **English:** Now specific Dharmas of gruhasts are being described. My aashrits who are male householders shall not touch widows except those who are closely related to them. 
+
+---
+
+**136.** 
+
+* **Gujarati:** અને તે ગૃહસ્‍થાશ્રમી પુરુષ તેમણે યુવા અવસ્‍થાને યુકત એવી જે પોતાની મા, બહેન અને દિકરી તે સંગાથે પણ આપત્‍કાળ વિના એકાંત સ્‍થળને વિષે ન કહેવું અને પોતાની સ્‍ત્રીનું દાન કોઇને ન કરવું
+
+* **Lipi:** Ane te grihasthashrami purush temane yuva avasthane yukat evi je potani ma, bahen ane dikari te sangathae pan aapatkaal vina ekant sthalane vishe na kahevum ane potani stri nu dan koi na karvum 
+
+* **English:** And they shall never remain in a secluded place, especially with their mother, sister, or daughter who are of young age except in the case of an emergency. And they shall never give away their wives to anybody.
+
+---
+
+**137.** 
+
+* **Gujarati:** અને જે સ્‍ત્રીને કોઇ પ્રકારના વ્‍યવહારે કરીને રાજાનો પ્રસંગ હોય તેવી સ્‍ત્રીનો જે પ્રસંગ તે કોઇ પ્રકારે પણ ન કરવો. 
+
+* **Lipi:**  Ane je stri ne koi prakar na vyavahare kari ne rajano prasang hoy tevi stri no je prasang te koi prakare pan na karvo.
+
+* **English:** And they shall not associate in any way with women who have contacts with rulers. 
+
+---
+
+**138.** 
+
+* **Gujarati:** અને તે ગૃહસ્‍થાશ્રમી તેમણે પોતાને ઘેર આવ્‍યો એવો જે અતિથિ તેને પોતાના સામર્થ્ય પ્રમાણે અન્‍નાદિકે કરીને પુજવો અને વળી હોમાદિક જે દેવકર્મ અને શ્રાદ્વાદિક જે પિતૃકર્મ તે જેતે પોતાના સામર્થ્ય પ્રમાણે યથાવિધિ જેમ ઘટે તેમ કરવું 
+
+* **Lipi:**  Ane te grihasthashrami temane potani gher aavyo evo je atithi tene potana samarthy pramane annaadike karine pujavo ane vali homaadike je devakarm ane shraddvadike je pitrukarm te jete potana samarthy pramane yathavidhi jem ghhate tem karvum
+
+* **English:** And whenever a guest comes to their house, they shall treat them with due hospitality according to their means and they shall perform sacrificial rites to deities and ancestral rites to pitru (ancestors), according to their ability. 
+
+---
+
+**139.** 
+
+* **Gujarati:** અને અમારા આશ્રિત જે ગૃહસ્‍થ તેમણે માતા-પિતા અને ગુરુ તથા રોગાતુર એવા જે કોઇ મનુષ્‍ય તેમની જે સેવા તે જીવનપર્યંત પોતાના સામર્થ્ય પ્રમાણે કરવી. 
+
+* **Lipi:** Ane amara ashrita je grihasth temane mata-pita ane guru tatha rogatur eva je koi manushy temni je seva te jivan paryant potana samarthy pramane karvi. 
+
+* **English:** And my gruhast aashrits shall render life long services to their parents, guru and ailing persons according to their ability. 
+
+---
+
+**140.**
+
+* **Gujarati:**  અને વળી પોતાના વર્ણાશ્રમને ઘટિત એવો જે ઉદ્યમ તે પોતાના સામર્થ્ય પ્રમાણે કરવો અને કૃષિવૃતિવાળા જે ગૃહસ્‍થ સત્‍સંગી તેમણે બળધિયાના વૃષણનો ઉચ્‍છેદ ન કરવો 
+
+* **Lipi:** Ane vali potana varnashramne ghate evo je udyam te potana samarthy pramane karvo ane krishivritivela je grihasth satsangi temane baladina vrishanno uchhed na karvo 
+
+* **English:** And they shall take jobs suitable to their varna and ashram, according to their abilities and farmers should never castrate their bulls. 
+
+---
+
+**141.**
+
+* **Gujarati:**   અને તે ગૃહસ્થ સત્સંગી તેમણે પોતાના સામર્થ્ય પ્રમાણે સમયને અનુસરીને જેટલો પોતાના ઘરમાં વરો હોય તેટલા અન્ન દ્રવ્યનો સંગ્રહ જે તે કરવો અને જેના ઘરમાં પશુ હોય એવા જે ગૃહસ્થ તેમણે પોતાના સામર્થ્ય પ્રમાણે ચાર્ય પૂળાનો સંગ્રહ કરવો 
+
+* **Lipi:** Ane te grihasth satsangi temane potana samarthy pramane samayane anusarine jetlo potana gharma varo hoy teto anna dravyano sangrah je te karvo ane jena gharma pashu hoy eva je grihasth temane potana samarthy pramane chary pulaano sangrah karvo 
+
+* **English:** And gruhast satsangis shall store food and accumulate wealth for their future requirements according to their circumstances and their abilities. Those who own cattle shall store sufficient fodder according to their means. 
+
+---
+
+**142.**
+
+* **Gujarati:**  અને ગાય, બળદ, ભેંસ, ઘોડા, આદિક જે પશુ તેમની તૃણ જળાદિકે કરીને પોતાવતે જો સંભાવના થાય તો તે પશુને રાખવા અને જો સંભાવના ન થાય તો ન રાખવા 
+
+* **Lipi:** Ane gaay, balad, bheins, ghoda, aadik je pashu temni trin jalaadik karine potavate jo sambhavna thaay to te pashune raakhva ane jo sambhavna na thaay to na raakhva 
+
+* **English:** And they shall keep cows and other cattle only if they are capable of taking care of them with food and water otherwise they shall not keep them. 
+
+---
+
+**143.**
+
+* **Gujarati:** અને સાક્ષિએ સહિત લખત કર્યા વિના તો પોતાના પુત્ર અને મિત્રાદિક સાથે પણ પૃથ્‍વી ને ધનના લેણદેણ કરીને વ્‍યવહાર જેતે કયારેય ન કરવો.
+
+* **Lipi:** Ane saakshiye sahit likhat karyaa vina to potana putra ane mitraadik saathae pan prithvi ne dhanana lenadena karine vyavahar je te kyaare na karvo. 
+
+* **English:** And they shall not undertake any sort of dealings pertaining to land or money even with their sons or friends without a written document duly witnessed. 
+
+---
+
+**144.**
+
+* **Gujarati:** અને પોતાનું અથવા બીજાનું જે વિવાહ સંબંધી કાર્ય તેને વિષે આપવા યોગ્‍ય જે ધન તેનું સાક્ષિએ સહિત લખત કર્યા વિના કેવળ બોલી જ ન કરવી 
+
+* **Lipi:** Ane potanu athava bejaanu je vivaah sambandhi karyaa tene vishe aapava yogya je dhan tenu saakshiye sahit likhat karyaa vina keval boli je na karvi 
+
+* **English:**  And one shall not rely merely on oral agreements with regards to amounts payable by either party in matrimonial affairs, but such agreements shall be in writing and duly witnessed.
+
+---
+
+**145.**
+
+* **Gujarati:** અને પોતાની ઉપજનું જે દ્રવ્‍ય તેને અનુસારે નિરંતર ખરચ કરવો પણ તે ઉપરાંત ન કરવો અને જે ઉપજ કરતા વધારે ખરચ કરે છે તેને મોટું દુઃખ થાય છે એમ સર્વે ગૃહસ્‍થોએ મનમાં જાણવું 
+
+* **Lipi:**  Ane potani upajnu je dravya tene anusare nirantar kharch karvo pan te uparant na karvo ane je upaj kartaa vadhaare kharch kare che tene motu dukh thaye che em sarve grihasthoae manma jaanvu 
+
+* **English:**  And they shall spend money according to their income. Those who spend more than their income put themselves into severe difficulty. 
+
+---
+
+**146.**
+
+* **Gujarati:**  અને પોતાના વ્‍યવહાર કાર્યને વિષે જેટલા ધનની ઉપજ હોય તથા જેટલો ખરચ હોય તે બેયને સંભારીને નિત્‍યપ્રત્‍યે રૂડા અક્ષરે કરીને પોતે તેનું નામુ લખવું 
+
+* **Lipi:** Ane potānā vyavahār kāryanē vise jetalā dhananī upaja hoy tathā jetalo kharcha hoy tē bēyanē sambhārīnē nityapratyē rūḍā akṣarē karīnē pōtē tēnu nāmu lakhvūn 
+
+* **English:**  And they shall keep daily records of their income and expenditure relating to social affairs in their own legible handwriting.
+
+---
+
+**147.**
+
+* **Gujarati:**  અને તે ગૃહસ્‍થાશ્રમી સત્‍સંગી તેમણે પોતાની જે વૃતિ અને ઉદ્યમ તે થકી પામ્‍યુ જે ધન ધાન્‍યાદિક તે થકી દશમો ભાગ કાઢીને શ્રીકૃષ્‍ણભગવાનને અર્પણ કરવો. અને જે વ્‍યવહારે દુર્બળ હોય તેમણે વિશમો ભાગ અર્પણ કરવો. 
+
+* **Lipi:** Ane tē gṛhasthāśramī satsaṅgī tēmaṇē potānī jē vṛti anē udyama tē thakī pāmyu jē dhan dhan'yādik tē thakī daśamō bhāga kāḍhīnē śrīkṛṣhṇabhagavānē arpṇa karvō. Ane jē vyavahārē durbala hōy tēmaṇē vīśamō bhāga arpṇa karvō. 
+
+* **English:**  And gruhast satsangis shall take out one-tenth of their incomes and give it to Shree Krishna Bhagwan. And those who cannot afford it, they shall give one twentieth to Shree Krishna Bhagwan. 
+
+---
+
+**148.**
+
+* **Gujarati:** અને એકાદશી આદિક જે વ્રત તેમનું જે ઉદ્યાપન તે જેતે પોતાના સામર્થ્ય પ્રમાણે યથાશાસ્‍ત્ર કરવું તે ઉદ્યાપન કેવું છે તો મનવાંછિત ફળનું આપનારું છે 
+
+* **Lipi:** Ane ēkādaśī ādika jē vrata tēmanu jētya potānā sāmarthya pramāṇē yathāśāstra karvūṁ tē udyāpan kēvuṁ chē tō manvāṅchiṭa phalnu āpanāruṁ chē
+
+* **English:**   And the concluding ceremonies of Vratas such as Ekadashi and others, shall be performed and celebrated as prescribed in shastras and according to their means. The concluding ceremonies, so performed, fulfil one’s aspirations. 
+
+---
+
+**149.**
+
+* **Gujarati:** અને શ્રાવણ માસને વિષે મહાદેવનું પુજન જેતે બિલ્‍વપત્રાદિકે કરીને પ્રીતિપૂર્વક સર્વ પ્રકારે પોતે કરવું અથવા બીજા પાસે કરાવવું 
+
+* **Lipi:** Ane shrāvaṇa māsanē vise mahādēvanu pūjana jēta bilvapatrādikē karīnē prītipurvaka sarva prakārē pōtē karvūṁ athavā bījā pāsē karāvavūṁ 
+
+* **English:** And in the month of Shraavan, they should worship Mahadevji with bilva-patra or ask others to worship Mahadevji on their behalf.
+
+---
+
+**150.**
+
+* **Gujarati:**  અને પોતાના જે આચાર્ય તે થકી તથા શ્રીકૃષ્ણભગવાનના જે મંદિર, તેથકી કરજ ન કાઢવું; અને વળી તે પોતાના આચાર્ય થકી અને શ્રીકૃષ્ણનાં મંદિર થકી પોતાના વ્યવહારને અર્થે પાત્ર, ઘરેણાં અને વસ્ત્રાદિક જે વસ્તુ તે માગી લાવવા નહિ.
+
+* **Lipi:** Ane potānā jē ācārya tē thakī tathā śrīkṛṣhṇabhagavānana jē mandira, tēthakī karaja n kāḍhavūṁ; anē vaḷī tē potānā ācārya thakī anē śrīkṛṣhṇanāṁ mandira thakī potānā vyavahārana arṭhe pātra, ghareṇāṁ anē vastarādika jē vastu tē māgī lāvavā nahi. 
+
+* **English:** And they shall never borrow money from their Acharyas or from the mandirs of Shree Krishna Bhagwan nor shall they borrow, for their social use utensils, ornaments, clothes and other articles owned by Acharyas or mandirs.
+
+---
