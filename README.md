@@ -1866,12 +1866,228 @@
 
 ---
 
-**191.** 
+**191.**  
 
-* **Gujarati:**  અને તે સાધુ તેમણે, આપત્કાળ પડ્યા વિના રાત્રીને વિષે સંઘ સોબત વિનાનું ચાલવું નહિ તથા આપત્કાળ પડ્યા વિના ક્યારેય પણ એકલા ચાલવું નહિ. 
+* **Gujarati:**  અને તે સાધુ તેમણે, આપત્કાળ પડ્યા વિના રાત્રીને વિષે સંઘ સોબત વિનાનું ચાલવું નહિ તથા આપત્કાળ પડ્યા વિના ક્યારેય પણ એકલા ચાલવું નહિ.
 
-* **Lipi:**   Ane tē sādhu tēmaṇē, āpatkāla padyā vinā rātrīnē vishe santa sobata vinānu chālvaṁ nahi tathā āpatkāla padyā vinā kyārē pana ēkalā chālvaṁ nahi. 
+* **Lipi:** Ane tē sādhu tēmaṇē, āpatkāla padyā vinā rātrīnē vishe santa sobata vinānu chālvaṁ nahi tathā āpatkāla padyā vinā kyārē pana ēkalā chālvaṁ nahi
 
-* **English:**  And except in the case of an emergency, Sadhus shall never go out alone at night nor shall they go out any other times without the companion of other Sadhus.
+* **English:** And except in the case of an emergency, Sadhus shall never go out alone at night nor shall they go out any other times without the companion of other Sadhus
 
 ---
+
+**192.**  
+
+* **Gujarati:**  અને જે વસ્ત્ર બહુ મૂલ્યવાળું હોય તથા ચિત્રવિચિત્ર ભાતનું હોય, તથા કસુંબાદિક જે રંગ તેણે કરીને રંગેલું હોય તથા શાલ-દુશાલા હોય ને તે જો બીજાની ઈચ્છાએ કરીને પોતાને પ્રાપ્ત થયું હોય, તો પણ તે વસ્ત્ર પોતાને પહેરવું ઓઢવું નહિ. 
+
+* **Lipi:** Ane jē vastru bahu mūlyavāluṁ hōy tathā citra vichitrabhātnuṁ hōy, tathā kasuṁbādika jē raṅga tēṇē karīnē raṅgeluṁ hōy tathā śāla-duśālā hōy nē tē jō bījānī īcchāē karīnē potānē prāpta thayuṁ hōy, tō paṇ tē vastru potānē paheravuṁ ōḍhavuṁ nahi. 
+
+* **English:** And they shall never wear clothing that is expensive, has decorations, dyed with gaudy colors and/or shawls or other garments even if they are offered to them by others. 
+
+---
+
+**193.**  
+
+* **Gujarati:** અને ભિક્ષા તથા સભા પ્રસંગ એ બે કાર્ય વિના ગૃહસ્થના ઘર પ્રત્યે જવું નહિ; અને ભગવાનની જે નવ પ્રકારની ભક્તિ તે વિના વ્યર્થ કાળ નિર્ગમવો નહિ, નિરંતર ભક્તિ કરીને જ કાળ નિર્ગમવો.
+
+* **Lipi:**  Ane bhikṣā ane sabhā prasaṅga ē bē kārya vinā gṛhasthanā ghara pratyē javuṁ nahi; ane bhagavān-nī jē naav prakāranī bhakti tē vinā vyarth kāla nirgamavō nahi, nirantara bhakti karīnēj kāla nirgamavō.
+
+* **English:** And they shall never go to a Gruhast's home except for receiving alms or a sabha prasang (religious gathering); and they shall always utilize their time in Bhagwan’s 9 types of bhakti instead of wasting their time idly. 
+
+---
+
+**194.**  
+
+* **Gujarati:**  અને જે ગૃહસ્થના ઘરને વિષે રાંધેલ અન્નનો પીરસનારો પુરુષ જ હોય તથા સ્ત્રીઓનો દર્શનાદિક પ્રસંગ કોઈ રીતે થાય એમ ન હોય. 
+
+* **Lipi:**  Anē jē gruhasthanā gharanē vishe rānḍhēla annanō pīrasanārō puruṣ jē hoy tathā strī'ōnō darśanādik prasaṅga kō'ī rītē thāy ēm na hoy.
+
+* **English:** And they shall receive meals from a gruhasts house where cooked food is served by males, and where they have no contact or sight of females. 
+
+---
+
+**195.**  
+
+* **Gujarati:** તેવી રીતનું જે ગૃહસ્થનું ઘર તે પ્રત્યે અમારા સાધુ તેમણે જમવા જવું અને એ કહ્યું તેવું ન હોય તો કાચું અન્ન માગીને પોતાના હાથે રસોઈ કરવી ને ભગવાનને નૈવેદ્ય ધરીને જમવું 
+
+* **Lipi:**  Teṁ vī rīṭ nuṁ je gṛhasth nuṁ ghar te pratye amārā sādhu teṁne jamavā javuṁ ane ē kahyūṁ tevuṁ na hōy tō kācuṁ anna māgīne potānē hāthē rasō'ī karvī nē bhagavān-nē naivēdyadhariṇē jamavuṁ 
+
+* **English:** If the facility is not available for the Sadhu, then they shall ask for uncooked food and prepare and offer it to Shree Krishna Bhagwan and then consume the prasad.
+
+---
+
+**196.**  
+
+* **Gujarati:** અને પૂર્વે ઋષભદેવ ભગવાનના પુત્ર જે ભરતજી તે જે તે પૃથ્વીને વિષે જડ બ્રાહ્મણ થકા જેમ વર્તતા હવા તેમજ પરમહંસ એવા જે અમારા સાધુ તેમણે વર્તવું. 
+
+* **Lipi:**  Ane pūrvē ṛṣabhadēva bhagavān nā putra je bharatajī tē je tē pṛthvī nē viṣē jaḍa brāhmaṇ thakā jeṁ vartatā havā tēmaṁ ane paramahaṅsa ēvā je amārā sādhu tēmaṁne vartavuṁ. 
+
+* **English:**  And my Paramhansas and Sadhu’s shall behave and live like Bharatiji, the son of Rishabdev Bhagwan, who behaved like a Jad (insensate) Brahmin. 
+
+---
+
+**197.**  
+
+* **Gujarati:** અને નૈષ્ઠિક બ્રહ્મચારી ને એ સાધુ તેમણે તાંબુલ તથા અફીણ તથા તમાકુ ઈત્યાદિકનું જે ભક્ષણ તે જતને કરીને વર્જવું.
+
+* **Lipi:**  Ane naishtika brahmacārī nē e sādhu teṁne tāmbula tathā aphīṇa tathā tamāku ītyādika nuṁ je bhakṣaṇ te je tana karīne varjavaṁ. 
+
+* **English:** And Naishthik Brahmacharis and Sadhus shall strictly abstain from taking betel leaves, opium, tobacco and other similar intoxicating substances.
+
+---
+
+**198.**  
+
+* **Gujarati:** અને તે નૈષ્ઠિક બ્રહ્મચારી ને સાધુ તેમણે ગર્ભાધાન આદિક જે સંસ્કાર તેમને વિષે જમવું નહિ તથા એકાદશાહ પર્યંત જે પ્રેતશ્રાદ્ધ તેમને વિષે જમવું નહિ તથા દ્વાદશાહ શ્રાદ્ધને વિષે જમવું નહિ. 
+
+* **Lipi:** Ane tē naishtika brahmacārī nē sādhu teṁne garbhādhāna ādika je sanskāra tēmanē viṣē jamavuṁ nahi tathā ēkādaśāha paryaṁta je pretaśrāddha tēmanē viṣē jamavuṁ nahi tathā dvādaśāha śrāddhane viṣē jamavuṁ nahi.
+
+* **English:**  And Naishthik Brahmacharis and Sadhus shall not consume food at ceremonies pertaining to conception and other Sanskars or Pretashraadh (funeral rites) of the eleventh day and twelfth day. 
+
+---
+
+**199.**  
+
+* **Gujarati:** અને રોગાદિક આપત્કાળ પડ્યા વિના દિવસે સુવું નહિ અને ગ્રામ્યવાર્તા કરવી નહિ ને જાણીને સાંભળવી નહિ 
+
+* **Lipi:**  Ane rogādika āpatkāla padyā vinā divase suvuṁ nahi ane grāmyavārtā karvī nahi nē jāṇīne sāṅbhālavī nahi 
+
+* **English:**  And unless they are unwell, they shall never sleep during the daytime and they shall never indulge in gossip and or listen to it.
+
+---
+
+**200.**   
+
+* **Gujarati:**  અને તે નૈષ્ઠિક બ્રહ્મચારી ને સાધુ તેમણે રોગાદિક આપત્કાળ પડ્યા વિના ખાટલા ઉપર સૂવું નહિ, અને સાધુની આગળ તો નિરંતર નિષ્કપટપણે વર્તવું 
+
+* **Lipi:** Ane tē naishtika brahmacārī nē sādhu teṁne rogādika āpatkāla padyā vinā khāṭalā upara sūvuṁ nahi, ane sādhu nī āgaḷ to nirantara niṣkapṭapuṇē vartavuṁ 
+
+* **English:**   And Naishthik Brahmacharis and Sadhus shall not sleep on a bed unless they are unwell; and they shall alway behave without arrogance or hypocrisy with other Sadhus.
+
+---
+
+**201.**   
+
+* **Gujarati:**  અને તે સાધુ અને બ્રહ્મચારી તેમણે કોઈક કુમતિવાળા દુષ્ટ જન હોય, ને તે પોતાને ગાળ દે અથવા મારે તો તે સહન જ કરવું, પણ તેને સામી ગાળ ન દેવી ને મારવો નહિ, અને તેનું જેમ હિત થાય તેમજ મનમાં ચિંતવન કરવું, પણ તેનું ભુંડુ થાય એવો તો સંકલ્પ પણ ન કરવો. 
+
+* **Lipi:** Ane tē sādhu ane brahmacārī teṁne kō'īka kumativālā duṣṭa jana hōy, nē tē potānē gāḷ dē athavā mārē to tē sahana j karvuṁ, paṇ tēnē sāmī gāḷ na dēvī nē mārvō nahi, ane tēnū jeṁ hit thāy tēmaṁ ane manmāṁ cintavana karvuṁ, paṇ tēnū bhunḍu thāy ēvo tō saṅkalpa paṇ na karvuṁ. 
+
+* **English:** And Sadhus and Brahmacharis shall not retaliate if they are insulted with abusive words or beaten by a wicked person, but in return should pardon them and wish them well. 
+
+---
+
+**202.**   
+
+* **Gujarati:**  અને કોઈનું દૂતપણું ન કરવું તથા ચાડિયાપણું ન કરવું ને કોઈના ચારચક્ષુ ન થવું અને દેહને વિષે અહંબુદ્ધિ ન કરવી ને સ્વજનાદિકને વિષે મમતા ન કરવી. (એવી રીતે સાધુના વિશેષ ધર્મ કહ્યા.) 
+
+* **Lipi:** Ane kō'īnunu dūtapuṇuṁ na karvuṁ tathā chāḍiyāpuṇuṁ na karvuṁ nē kō'īnā chārachakṣu na thavuṁ ane dehane viṣē ahaṁbuddhi na karvī nē svajanādika nē viṣē mamatā na karvī. (Ēvī rītē sādhu nā visheṣa dharam kahyā.) 
+
+* **English:**  And they shall never act as a messenger, indulge in backbiting or spying, and they shall not have ego towards their body and/or have any attachments toward their relatives. (Thus the specific Dharmas of Sadhus are described).
+
+---
+
+**203.**   
+
+* **Gujarati:** અને અમારે આશ્રિત એવા જે સત્સંગી બાઈભાઈ સર્વે તેમના જે સામાન્ય ધર્મ અને વિશેષ ધર્મ તે જે તે સંક્ષેપે કરીને આવી રીતે અમે લખ્યા છે અને આ ધર્મનો જે વિસ્તાર તે તો અમારા સંપ્રદાયના જે ગ્રંથ તે થકી જાણવો. 
+
+* **Lipi:** Ane amārē āśrita ēvā je satsaṅgī bā'ībhā'ī sarvē tēmanā je sāmānya dharam ane visheṣa dharam tē je tē sāṅkṣēpē karīnē āvī rītē amē likhyā chhē ane ā ā dharamanō je visṭāra tē tō amārā sampradāyanā jē grantha tē thakī jāṇavō. 
+
+* **English:**   And I have thus described briefly, the general and specific Dharmas of my Aashrits. For details, they shall refer to other Shastras of our Sampraday. 
+
+---
+
+**204.**   
+
+* **Gujarati:**  અને સર્વે જે સત્શાસ્ત્ર તેનો જે સાર તેને અમે અમારી બુદ્ધિએ કરીને ઉદ્ધારીને આ શિક્ષાપત્રી જે તે લખી છે તે કેવી છે – તો સર્વે મનુષ્યમાત્રને મનવાંછિત ફળની દેનારી છે 
+
+* **Lipi:** Ane sarvē jē satsaṅga tēnō jē sāra tēnē amē amārī buddhiē karīnē uddhārīnē ā ā śhikṣhāpatrī jē tē kēvī chhē – tō sarvē manuṣyamātra nē manvāṉchiṭa phaḷanī dēnārī chhē 
+
+* **English:** And I have written this Shikshapatri taking the essence from all the Shastras. This will fulfill the wishes of all my aashrits.
+
+---
+
+**205.**   
+
+* **Gujarati:**  એ હેતુ માટે અમારા આશ્રિત જે સર્વે સત્સંગી તેમણે સાવધાનપણે કરીને નિત્યપ્રત્યે આ શિક્ષાપત્રીને અનુસરીને જ વર્તવું. પણ પોતાના મનને જાણે તો ક્યારેય ન વર્તવું 
+
+* **Lipi:**  Ē hētu māṭē amārā āśrita jē sarvē satsaṅgī tēmanē sāvadhānapaṇē karīnē nityapratyē ā ā śhikṣhāpatrīnē anusarīnē je varṭavuṁ. Paṇ potānā mana nē jāṇē tō kyārēy n varṭavuṁ
+
+* **English:**  Therefore, all my aashrits shall always live their lives following the precepts of the Shikshapatri and shall never behave as they desire. 
+
+---
+
+**206.**   
+
+* **Gujarati:** અને જે અમારા આશ્રિત પુરુષ ને સ્ત્રીઓ તે જે તે આ શિક્ષાપત્રી પ્રમાણે વર્તશે, તો તે ધર્મ, અર્થ, કામ ને મોક્ષ એ ચાર પુરુષાર્થની સિદ્ધિને નિશ્ચે પામશે.
+
+* **Lipi:** Anē jē amārā āśrita puruṣ nē strī'ō tē je tē ā ā śhikṣhāpatrī pramāṇē vartaśē, tō tē dharama, artha, kāma nē mōkṣa ē caār puruṣārthanī siddhinē niśchaya pāmashē. 
+
+* **English:** And my aashrits, male or female who follow this Shikshapatri, shall definitely attain Dharma, Arth, Kam and Moksh – the four Purusharthas (desired objects). 
+
+---
+
+**207.**   
+
+* **Gujarati:** અને જે બાઈ-ભાઈ, આ શિક્ષાપત્રી પ્રમાણે નહિ વર્તે તે તો અમારા સંપ્રદાય થકી બાહેર છે એમ અમારા સંપ્રદાયવાળા સ્ત્રી-પુરુષ તેમણે જાણવું.
+
+* **Lipi:** Ane jē bā'ī-bhā'ī, ae ā śhikṣhāpatrī pramāṇē nahi vartē tē tō amārā sampadāya thakī bāhēra chhē ēma amārā sampadāyavālā strī-puruṣ tēmanē jāṇavuṁ. 
+
+* **English:** And my male and female aashrits, shall understand that those who do not follow the Shikshapatri shall be considered as exiled from our Sampraday.
+
+---
+
+**208.**   
+
+* **Gujarati:** અને અમારા જે આશ્રિત સત્સંગી તેમણે આ શિક્ષાપત્રીનો નિત્યપ્રત્યે પાઠ કરવો અને જેને ભણતા આવડતું ન હોય તેમણે તો આદર થકી આ શિક્ષાપત્રીનું શ્રવણ કરવું 
+
+* **Lipi:** Ane amārā jē āśrita satsaṅgī tēmanē ā śhikṣhāpatrīnō nityapratyē pāṭha karvō ane jēnē bhaṇatā āvaḍatun nahi hōy tēmanē tō ādara thakī ae ā śhikṣhāpatrīnūṁ śravaṇa karvu 
+
+* **English:**  And my aashrits shall read this Shikshapatri daily, and those who cannot read, shall listen to it daily with respect. 
+
+---
+
+**209.**   
+
+* **Gujarati:** અને આ શિક્ષાપત્રીને વાંચી સંભળાવે એવો કોઈ ન હોય ત્યારે તો નિત્યપ્રત્યે આ શિક્ષાપત્રીની પૂજા કરવી; અને આ જે અમારી વાણી તે અમારું સ્વરૂપ છે. એ રીતે પરમ આદર થકી માનવી. 
+
+* **Lipi:** Ane ae ā śhikṣhāpatrīnē vāṇcī saṅbhāḷāvē ēvo kō'ī nahi hōy tyārē tō nityapratyē ae ā śhikṣhāpatrīnī pūjā karvī; ane ā jē amārī vāṇī tē amāruṁ svarūpa chhē. Ē rītē parama ādara thakī mānavī. 
+
+* **English:** And when there is no one to read this Shikshapatri to them, then they shall do its puja daily; all my aashrits shall reverently honour my word as my divya swarup (divine self). 
+
+---
+
+**210.** 
+
+* **Gujarati:**  અને આ જે અમારી શિક્ષાપત્રી તે જે તે દૈવીસંપદાએ કરીને યુક્ત એવો જે જન હોય, તેને આપવી અને જે જન આસુરી સંપદાએ કરીને યુક્ત હોય, તેને તો ક્યારેય ન આપવી. 
+
+* **Lipi:**  Ane ā jē amārī śhikṣhāpatrī tē jē tē daivīsampadāē karīnē yukta ēvo jē jana hōy, tēnē āpavī ane jē jana āsurī sampadāē karīnē yukta hōy, tēnē tō kyārē n āpavī. 
+
+* **English:** And this Shikshapatri shall only be given to a person with divine virtues and shall never be given to a person with demonic tendencies. 
+
+---
+
+**211.** 
+
+* **Gujarati:**  સંવત ૧૮૮૨ અઢારસો બ્યાસીનાં મહાસુદી પંચમીને દિવસે આ શિક્ષાપત્રી અમે લખી છે, તે પરમ કલ્યાણકારી છે. 
+
+* **Lipi:**   Samvat 1882 aḍhārasō byāsīnāṁ mahāsudī paṅchamīnē divasē ae ā śhikṣhāpatrī amē lakhī chhē, tē parama kalyāṇakārī chhē. 
+
+* **English:** In Samvat 1882, on Maha Sud Panchami (fifth day of the bright half of the month of Maha), I (Shree Sahajanand Swami) have written this Shikshapatri which is all auspicious. 
+
+
+---
+
+**212.** 
+
+* **Gujarati:** અને પોતાના આશ્રિત જે ભક્તજન તેમની જે સમગ્ર પીડા તેના નાશ કરનારા એવા ને ધર્મે સહિત જે ભક્તિ તેની રક્ષાના કરનારા એવા ને પોતાના ભક્તજનને મનવાંછિત સુખના આપનારા એવા જે શ્રીકૃષ્ણ ભગવાન, તે જે તે અમારા સમગ્ર મંગલને વિસ્તારો. ||૨૧૨||
+
+	|| ઈતિ શ્રી સહજાનંદ સ્વામી શિષ્ય નિત્યાનંદ મુનિ લિખિતા શિક્ષાપત્રી ટીકા સમાપ્તા ||
+
+* **Lipi:**    Ane potānā āśrita jē bhaktajana tēmanī jē samagra pīḍā tēnā nāśa karānārā ēva nē dharmē sahita jē bhakti tēnī rakṣhāna karnara ēva nē potānā bhaktajanē manvāṅchiṭa sukhanā āpanārā ēva jē śhrīkṛṣṇa bhagavāna, tē jē tē amārā samagra maṅgalanē vistārō.
+
+	|| īti śhrī sahajānanda svāmī śiṣya nityānanda muni likhitā śhikṣhāpatrī ṭīkā samāptā ||
+
+* **English:**  And may Shree Krishna Bhagwan, destroyer of his Aashrits miseries, protector of Dharma with Bhakti and bestower of all desired happiness to his Bhaktas, shower his aashirvad (blessings) on us all. 
+
+ || Thus concludes the Shikshapatri, written by Shree Sahajanand Swami and Nityanand Muni. || 
+
