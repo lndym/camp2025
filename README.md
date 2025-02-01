@@ -2079,15 +2079,15 @@
 
 **212.** 
 
-* **Gujarati:** અને પોતાના આશ્રિત જે ભક્તજન તેમની જે સમગ્ર પીડા તેના નાશ કરનારા એવા ને ધર્મે સહિત જે ભક્તિ તેની રક્ષાના કરનારા એવા ને પોતાના ભક્તજનને મનવાંછિત સુખના આપનારા એવા જે શ્રીકૃષ્ણ ભગવાન, તે જે તે અમારા સમગ્ર મંગલને વિસ્તારો. ||૨૧૨||
+* **Gujarati:** અને પોતાના આશ્રિત જે ભક્તજન તેમની જે સમગ્ર પીડા તેના નાશ કરનારા એવા ને ધર્મે સહિત જે ભક્તિ તેની રક્ષાના કરનારા એવા ને પોતાના ભક્તજનને મનવાંછિત સુખના આપનારા એવા જે શ્રીકૃષ્ણ ભગવાન, તે જે તે અમારા સમગ્ર મંગલને વિસ્તારો.
 
-	|| ઈતિ શ્રી સહજાનંદ સ્વામી શિષ્ય નિત્યાનંદ મુનિ લિખિતા શિક્ષાપત્રી ટીકા સમાપ્તા ||
+ઈતિ શ્રી સહજાનંદ સ્વામી શિષ્ય નિત્યાનંદ મુનિ લિખિતા શિક્ષાપત્રી ટીકા સમાપ્તા 
 
 * **Lipi:**    Ane potānā āśrita jē bhaktajana tēmanī jē samagra pīḍā tēnā nāśa karānārā ēva nē dharmē sahita jē bhakti tēnī rakṣhāna karnara ēva nē potānā bhaktajanē manvāṅchiṭa sukhanā āpanārā ēva jē śhrīkṛṣṇa bhagavāna, tē jē tē amārā samagra maṅgalanē vistārō.
 
-	|| īti śhrī sahajānanda svāmī śiṣya nityānanda muni likhitā śhikṣhāpatrī ṭīkā samāptā ||
+īti śhrī sahajānanda svāmī śiṣya nityānanda muni likhitā śhikṣhāpatrī ṭīkā samāptā 
 
 * **English:**  And may Shree Krishna Bhagwan, destroyer of his Aashrits miseries, protector of Dharma with Bhakti and bestower of all desired happiness to his Bhaktas, shower his aashirvad (blessings) on us all. 
 
- || Thus concludes the Shikshapatri, written by Shree Sahajanand Swami and Nityanand Muni. || 
+Thus concludes the Shikshapatri, written by Shree Sahajanand Swami and Nityanand Muni.
 
