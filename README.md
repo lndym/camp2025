@@ -559,3 +559,101 @@
 * **English:**  And these Atmanivedi bhaktas shall never drink water nor shall eat leaves, fruits, roots, etc., without first offering it to Shree Krishna Bhagwan.
 
 ---
+
+**61.**  
+
+* **Gujarati:** અને વળી સર્વે જે અમારા સત્સંગી તેમણે વૃધ્ધપણા થકી અથવા કોઈ મોટા આપત્કાળે કરીને અસમર્થપણું થઈ ગયે સતે પોતે સેવવાનું જે શ્રીકૃષ્ણનું સ્વરૂપ, તે બીજા ભક્તને આપીને પોતે પોતાના સામર્થ્ય પ્રમાણે વર્તવું.
+
+* **Lipi:** Ane vaḷī sarvē je amārā satsaṅgī temṇē vṛiddhapṇā thakī athavā kō'ī mōṭā āpatkāḷē karīnē asamarthapṇuṁ thaī gayē satē pōtē sēvavānuṁ je śrīkṛṣṇanuṁ svarūpa, tē bījā bhaktanē āpīnē pōtē pōtānā sāmarthyapramaṇē vartavuṁ.
+
+* **English:** And my aashrits who have become disabled by old age or by some extreme adversity shall give their idols of Shree Krishna Bhagwan, which they have worshipped, to another one of my bhaktas. The disabled aashrit shall thereafter worship Shree Krishna Bhagwan to the best of their ability. 
+
+---
+
+**62.**  
+
+* **Gujarati:** અને જે શ્રીકૃષ્ણનું સ્વરૂપ પોતાને સેવવાને અર્થે ધર્મવંશના જે આચાર્ય, તેમણે જ આપ્યું હોય અથવા તે આચાર્યે જે સ્વરૂપની પ્રતિષ્ઠા કરી હોય તે જ સ્વરૂપને સેવવું અને તે વિના બીજું જે શ્રીકૃષ્ણનું સ્વરૂપ, તે તો નમસ્કાર કરવા યોગ્ય છે પણ સેવવા યોગ્ય નથી. 
+
+* **Lipi:** Ane je śrīkṛṣṇanuṁ svarūpa pōtānē sēvavānē arthē dharmavaṁśanā je ācārya, temṇē jē āpyuṁ hoy athavā tē ācāryē jē svarūpanī pratiṣṭhā karī hoy, tē jē svarūpanē sēvavuṁ ane tē vinā bījuṁ je śrīkṛṣṇanuṁ svarūpa, tē tō namaskāra karvā yōgya che paṇ sēvavā yōgya nathī. 
+
+* **English:**  And all aashrits shall worship only those idols of Shree Krishna Bhagwan which have been given to them by the Acharya or installed by him. Other idols are worthy of being respected and bowed to, but not served. 
+
+---
+
+**63.**
+
+* **Gujarati:**  અને અમારા જે સર્વે સત્સંગી તેમણે નિત્ય પ્રત્યે સાયંકાળે ભગવાનના મંદિર પ્રત્યે જવું અને તે મંદિરને વિષે શ્રીરાધિકાજીના પતિ એવા જે શ્રીકૃષ્ણ ભગવાન તેના નામનું ઉચ્ચ સ્વરે કરીને કીર્તન કરવું.
+
+* **Lipi:** Ane amārā jē sarvē satsaṅgī temṇē nitya pratyē sāyaṁkālē bhagavānnā mandira pratyē javuṁ ane tē mandiranē viśē śrīrādhikājīnā pati evā je śrīkṛṣṇa bhagavānnā nāmanuṁ ūn̄chē svarē karīnē kīrtana karvu. 
+
+* **English:**  And all my aashrits shall go to mandir everyday in the evening and there, they shall sing kirtans in praise of Shree Krishna Bhagwan. 
+
+---
+
+**64.**
+
+* **Gujarati:** અને તે શ્રીકૃષ્ણની જે કથા વાર્તા, તે પરમ આદર થકી કરવી ને સાંભળવી અને ઉત્સવને દિવસે વાજીંત્ર સહિત શ્રીકૃષ્ણનાં કીર્તન કરવા. 
+
+* **Lipi:** Ane tē śrīkṛṣṇanī je kathā vārtā, tē parama ādara thakī karvī nē sāṁbhaḷvī ane utsavanē divasē vājīntrē sahita śrīkṛṣṇanāṁ kīrtana karvā. 
+
+* **English:** And all aashrits shall read and listen to shastras related to Shree Krishna Bhagwan with deep reverence, and shall celebrate all utsavs with his songs, in company with musical instruments. 
+
+---
+
+**65.**
+
+* **Gujarati:** અને અમારા આશ્રિત જે સર્વે સત્સંગી, તેમણે જે પ્રકારે પૂર્વે કહ્યું એ પ્રકારે કરીને જ નિત્ય પ્રત્યે કરવું અને સંસ્કૃત અને પ્રાકૃત એવા જે સદગ્રંથ તેમનો અભ્યાસ પણ પોતાની બુધ્ધિને અનુસારે કરવો.
+
+* **Lipi:** Ane amārā āśrita je sarvē satsaṅgī, temṇē jē prakārē pūrvē kahyu ē prakārē karīnē j nitya pratyē karavuṁ ane samskr̥ta ane prākr̥ta ēvā jē sadgrantha temnō abhyāsa paṇ pōtānī buddhi nē anusārē karavō. 
+
+* **English:** And all my aashrit shall always behave as per my agyna (instructions) and shall study the shastras in Sanskrit and Prakrit (vernacular languages originated from Sanskrit) to the best of their abilities. 
+
+---
+
+**66.**
+
+* **Gujarati:** અને જે મનુષ્ય જેવા ગુણે કરીને યુક્ત હોય, તે મનુષ્યને તેવા કાર્યને વિષે વિચારીને જ પ્રેરવો, પણ જે કાર્યને વિષે જે યોગ્ય ન હોય તે કાર્યને વિષે તેને ક્યારેય ન પ્રેરવો. 
+
+* **Lipi:** Ane je manuṣya jevā guṇē karīnē yukta hōy, tē manuṣyanē tēvā kāryanē visē vicārīnē j preravō, paṇ jē kāryanē visē jē yōgya n hōy tē kāryanē visē tēnē kyārēy n preravō.
+
+* **English:** And all my aashrit should assign work to a person according to their capability only, and not otherwise.
+
+---
+
+**67.**
+
+* **Gujarati:** અને પોતાના જે સેવક હોય, તે સર્વની પોતાના સામર્થ્ય પ્રમાણે અન્નવસ્ત્રાદિકે કરીને યથાયોગ્ય સંભાવના નિરંતર રાખવી. 
+
+* **Lipi:** Ane pōtānā jē sēvaka hōy, tē sarvanī pōtānā sāmarthyapramaṇē annavastrādikē karīnē yathāyōgya sanbhāvanā nirantara rākhavī. 
+
+* **English:** And my aashrits shall take care of their workers with regards to food and clothing to the best of their abilities.
+
+---
+
+**68.**
+
+* **Gujarati:** અને જે પુરુષ જેવા ગુણવાળો હોય તે પુરુષને તેવા વચને કરીને દેશ કાળાનુસારે યથાયોગ્ય બોલાવવો પણ એથી બીજી રીતે ન બોલાવવો. 
+
+* **Lipi:** Ane jē puruṣa jevā guṇavālō hōy, tē puruṣanē tēvā vachanē karīnē dēśakālānusārē yathāyōgya bōlāvavō paṇ ēthē bījī rītē n bōlāvavō. 
+
+* **English:**  And my aashrits should address a person according to his status, taking into consideration the time and place, but not otherwise.
+
+---
+
+**69.**
+
+* **Gujarati:**  અને વિનયે કરીને યુક્ત એવા જે અમારા આશ્રિત સત્સંગી-તેમણે ગુરુ, રાજા, અતિવૃધ્ધ, ત્યાગી, વિદ્વાન અને તપસ્વી એ છ જણા આવે ત્યારે સન્મુખ ઉઠવું તથા આસન આપવું તથા મધુરે વચને બોલાવવું ઈત્યાદિક ક્રિયાએ કરીને એમનું સન્માન કરવું. 
+
+* **Lipi:**  Ane vinayē karīnē yukta ēvā jē amārā āśrita satsaṅgī-temaṇē guru, rājā, ativr̥ddha, tyāgī, vidvāna ane tapasvī ē cha jaṇā āvē tyārē sanmukha utthavuṁ tathā āsana āpavuṁ tathā madhurē vachanē bōlāvavuṁ ītyādik kriyāē karīnē ēmanuṁ sanmāna karavuṁ.
+
+* **English:**   And upon the arrival of a guru, a king, a very old person, a renounced person, a scholar or a tyagi (ascetic), my aashrits shall give a respectful welcome by rising up from their seat, bowing down, offering a seat and saying pleasant words.
+
+---
+
+**70.**
+
+* **Gujarati:**   અને ગુરુ, દેવ ને રાજા એમને સમીપે તથા સભાને વિષે પગ ઉપર પગ ચઢાવીને ન બેસવું તથા વસ્ત્રે કરીને ઢિંચણ ને બાંધીને ન બેસવું.
+
+* **Lipi:** Ane guru, dev ne raja emne samipe tatha sabhane vishe pag upar pag chadhavine na besvu tatha vastre karine dhichan ne baandhine n besvu 
+
+* **English:** And one shall not sit with one leg over the other or with knees bound with a cloth strap in the presence of a guru, dev, king or in a sabha. 
