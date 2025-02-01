@@ -657,3 +657,103 @@
 * **Lipi:** Ane guru, dev ne raja emne samipe tatha sabhane vishe pag upar pag chadhavine na besvu tatha vastre karine dhichan ne baandhine n besvu 
 
 * **English:** And one shall not sit with one leg over the other or with knees bound with a cloth strap in the presence of a guru, dev, king or in a sabha. 
+
+**71.**  
+
+* **Gujarati:** અને અમારા આશ્રિત જે સર્વ સત્સંગી તેમણે પોતાના આચાર્ય સંગાથે ક્યારેય પણ વિવાદ ન કરવો અને પોતાના સામર્થ્ય પ્રમાણે અન્ન, ધન, વસ્ત્રાદિકે કરીને તે પોતાના આચાર્યને પૂજવા. |
+
+* **Lipi:** Ane amārā āśrita jē sarva satsaṅgī tēmaṇē pōtānā ācārya saṅgāthē kyārē paṇa vivāda n karavō ane pōtānā sāmarthya pramaṇē anna, dhana, vastrādikē karīnē tē pōtānā ācāryanē pūjavā.
+
+* **English:** And my aashrits shall never enter into vivaad (disagreements) with their Acharya, but shall honor and serve him by offering food, money, clothing, etc. according to their abilities.
+
+---
+
+**72.**  
+
+* **Gujarati:**  અમારા જે આશ્રિત જન તેમણે પોતાના આચાર્યને આવતા સાંભળીને આદર થકી તત્કાળ સન્મુખ જવું અને તે આચાર્ય પોતાના ગામથી પાછા પધારે ત્યારે ગામની ભાગોળ સુધી વળાવવા જવું. 
+
+* **Lipi:** Amārā jē āśrita jana tēmaṇē pōtānā ācāryanē āvatā sāmbhalīnē ādara thakī tatkāla sanmukha javu ane tē ācārya pōtānā gāmthī pāchā padhārē tʰyārē gāmṇī bhāgoḷa sudhī vaḷāvavā javu. 
+
+* **English:** On hearing the news of the arrival of the Acharya, my aashrits shall go forth to the outskirts of the village or town to welcome him with honor and respect, and on his departure shall accompany him up to the outskirts of the village or town to bid him farewell.
+
+---
+
+**73.**  
+
+* **Gujarati:**  અને ઘણુંક છે ફળ જેને વિષે એવું પણ જે કર્મ, તે જો ધર્મે રહિત હોય તો તેનું આચરણ ન જ કરવું, કેમ જે ધર્મ છે તે જ સર્વ પુરૂષાર્થનો આપનારો છે માટે કોઈક ફળના લોભે કરીને ધર્મનો ત્યાગ ન કરવો.
+
+* **Lipi:**  Ane ghaṇuk chē phaḷ jēnē visē ēvuṁ paṇ jē karma, tē jō dharmē rahita hōy tō tēnuṁ ācaraṇa na j karavu, kēm jē dharma chē tē j sarva puruṣārthanō āpanārō chē māṭē kō'ika phaḷanā lōbhē karīnē dharma nō tyāga na karavō. 
+
+* **English:** And one shall never perform any activities that are devoid of dharma, even if they are beneficial in some way. Dharma alone is capable of fulfilling the four Purusharths (dharma, arth, kaam and moksh). Therefore, one shall not give up dharma in the hope of some benefits.
+
+---
+
+**74.**  
+
+* **Gujarati:** અને પૂર્વે થયા જે મોટા પુરુષ તેમણે પણ જો ક્યારેય અધર્માચરણ કર્યુ હોય તો તેનું ગ્રહણ ન કરવું અને તેમણે જે ધર્માચરણ કર્યુ હોય તો તેનું ગ્રહણ કરવું. 
+
+* **Lipi:**  Ane pūrvē thayā jē mōṭā puruṣa tēmaṇē paṇ jō kyārē adharmācaraṇ karyu hōy tō tēnuṁ grahaṇ n karavu ane tēmaṇē jē dharmaācaraṇ karyu hōy tō tēnuṁ grahaṇ karavu.
+
+* **English:**  And one shall never adopt any of the adharmic (unethical) acts of the great people of the past but shall follow their acts that conform with dharma. 
+
+---
+
+**75.**  
+
+* **Gujarati:** અને કોઈની પણ જે ગુહ્યવાર્તા તે તો કોઈ ઠેકાણે પણ પ્રકાશ કરવી જ નહિ અને જે જીવનું જેવી રીતે સન્માનકરવું ઘટતું હોય, તેનું તેવી રીતે જ સન્માન કરવું પણ સમદ્રષ્ટિએ કરીને એ મર્યાદાનું ઉલ્લંઘન કરવું નહિ. 
+
+* **Lipi:** Ane kō'īnī paṇ jē guhyavārtā tē tō kō'ī ṭhēkāṇē paṇ prakāśa karavī j nahi ane jē jīvanuṁ jēvī rītē sanmānkaravuṁ ghaṭatu hōy, tēnuṁ tēvī rītē j sanmāna karavuṁ pan samadṛṣṭiyē karīnē ē maryādānuṁ ullanghana karavuṁ nahi. 
+
+* **English:** And one shall never disclose the secrets of others to anyone else and shall give due respect to deserving persons. This rule shall not be violated in the name of equality.
+
+---
+
+**76.**  
+
+* **Gujarati:** અને અમારા જે સર્વે સત્સંગી તેમણે ચાતુર્માસને વિષે વિશેષ નિયમ ધારવો, અને જે મનુષ્ય અસમર્થ હોય તેમણે તો એક શ્રાવણ માસને વિષે વિશેષ નિયમ ધારવો.
+
+* **Lipi:** Ane amārā jē sarvē satsaṅgī tēmaṇē cāturmāsanē visē viśēṣa niyama dhāravō, anē jē manuṣya asamartha hōy tēmaṇē tō ēka śrāvaṇa māsanē visē viśēṣa niyama dhāravō.
+
+* **English:** And all my aashrits shall perform special additional niyams (religious duties) as worship during Chaturmaas (4 months of the monsoon). Those who are incapable shall at least perform them during the month of Shraavan. 
+
+---
+
+**77.** 
+
+* **Gujarati:** અને તે વિશેષ નિયમ તે કિયા તો ભગવાનની કથાનું શ્રવણ કરવું તથા કથા વાંચવી તથા ભગવાનના ગુણનું કીર્તન કરવું તથા પંચામૃત સ્નાને કરીને ભગવાનની મહાપૂજા કરવી તથા ભગવાનના મંત્રનો જપ કરવો તથા સ્તોત્રનો પાઠ કરવો તથા ભગવાનને પ્રદક્ષિણાઓ કરવી.
+
+* **Lipi:**  Ane tē visēṣa niyama tē kiyā tō bhagavānani kathānuṁ śravaṇa karvuṁ tathā kathā vāṅcavī tathā bhagavānana guṇanuṁ kīrtana karvuṁ tathā pañcāmr̥ta snānē karīnē bhagavānani mahāpūjā karvi tathā bhagavānana mantra no japa karvo tathā stōtranō pāṭh karvo tathā bhagavānē pradakṣiṇā'ō karvi. 
+
+* **English:**  And special niyam are: listening to shastras, reading shastras, reciting kirtans in praise of Bhagwan's divine qualities, performing mahapuja of the Bhagwan's idols, chanting Bhagwan's mantra, reciting Bhagwan's stotras, performing pradikshana, 
+
+---
+
+**78.** 
+
+* **Gujarati:** તથા ભગવાનને સાષ્ટાંગ નમસ્કાર કરવા-એ જે આઠ પ્રકારના નિયમ તે અમે ઉત્તમ માન્યા છે. તે માટે એ નિયમમાંથી કોઈ એક નિયમ જે તે ચોમાસાને વિષે વિશેષપણે ભક્તિએ કરીને ધારવો.
+
+* **Lipi:** Tathā bhagavānē sāṣṭāṅga namaskāra karvā-e jē āṭha prakārānā niyama tē amē uttam mānyā chhē. Tē māṭē ē niyamamāṁthī kō'ī ēka niyama jē tē chaturmaas visē viśēṣapaṇē bhaktiē karīnē dhāravō. 
+
+* **English:** And doing dandvat in front of Bhagwan's image. These 8 types of niyams are considered highly valued. Therefore, all my aashrits shall observe any one of these devoutly during Chaturmaas as a special additional niyam. 
+
+---
+
+**79.** 
+
+* **Gujarati:** અને સર્વ જે એકાદશીઓ, તેમનું વ્રત જે તે આદરથકી કરવું તથા શ્રીકૃષ્ણ ભગવાનના જે જન્માષ્ટમી આદિક જન્મદિવસ તેમનું વ્રત જે તે આદરથકી કરવું તથા શિવરાત્રીનું વ્રત જે તે આદરથકી કરવું અને તે વ્રતના દિવસને વિષે મોટા ઉત્સવ કરવા. 
+
+* **Lipi:**  Ane sarva jē ēkādaśī'ō, tēmanuṁ vrat jē tē ādarthakī karvuṁ tathā śrīkṛṣhṇa bhagavānana jē janmāṣṭamī ādi janmadivas tēmanuṁ vrat jē tē ādarthakī karvuṁ tathā śivarātrīnuṁ vrat jē tē ādarthakī karvuṁ ane tē vratanā divasnē viṣē mōṭā utsava karva. 
+
+* **English:** And everyone should do upvas (fast) on every Ekadashi, Shree Krishna Bhagwan's Janmashtmi, and other birth anniversaries, as well as Shivratri, and celebrate them with festivals.
+
+---
+
+**80.** 
+
+* **Gujarati:** અને જે દિવસે વ્રતનો ઉપવાસ કર્યો હોય તે દિવસે અતિશય યત્ને કરીને દિવસની નિદ્રાનો ત્યાગ કરવો, કેમ જે જેમ મૈથુને કરીને મનુષ્યના ઉપવાસનો નાશ થાય છે તેમ જ દિવસની નિદ્રાએ કરીને મનુષ્યના ઉપવાસનો નાશ થઈ જાય છે. 
+
+* **Lipi:** Ane jē divasē vratanō upavāsa karyō hōy tē divasē atishaya yatnē karīnē divasanī nidrānō tyāga karvō, kēma jē jēma mait'hunē karīnē manuṣyanā upavāsanō nāśa thāy chē tēma jē divasanī nidrāē karīnē manuṣyanā upavāsanō nāśa thai jāy chē. 
+
+* **English:** And on days of upvas, one shall make every effort to avoid sleeping during the daytime. Sleeping during daytime as well as sexual indulgence nullifies the upvas.
+
+ 
