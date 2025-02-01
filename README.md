@@ -756,4 +756,104 @@
 
 * **English:** And on days of upvas, one shall make every effort to avoid sleeping during the daytime. Sleeping during daytime as well as sexual indulgence nullifies the upvas.
 
+---
+
+  **81.**  
+
+* **Gujarati:** અને સર્વ વૈષ્ણવના રાજા એવા જે શ્રી વલ્લભાચાર્ય તેના પુત્ર જે શ્રી વિઠ્ઠલનાથજી તે જેતે જે વ્રત અને ઉત્સવના નિર્ણયને કરતા હવા. 
+
+* **Lipi:** Ane sarva vaiṣṇavanā rājā ēvā jē śrī vallabhācārya tēnā putra jē śrī vitthalanāthajī tē jētē jē vrat anē utsavānā nirṇaynē karatā havā.
+
+* **English:** And everyone shall perform vrats (self-discipline) and utsavs (festivals), as per Shree Vitthalnathji’s decision, the son of Shri Vallabhacharya, who was a king among Vaishnavas.
+
+---
+
+**82.**  
+
+* **Gujarati:** અને તે વિઠ્ઠલનાથજીએ કર્યો જે નિર્ણય તેને જ અનુસરીને સર્વે વ્રત ને ઉત્સવ કરવા, અને તે વિઠ્ઠલનાથજીએ કહી જે શ્રીકૃષ્ણની સેવા રીતિ તેનું જ ગ્રહણ કરવું. 
+
+* **Lipi:** Ane tē vitthalanāthajīē karyō jē nirṇay tēnē j anusarīnē sarvē vrat nē utsava karvā, ane tē vitthalanāthajīē kahī jē śrīkṛṣṇanī sēvā rīti tēnu j grahaṇ karvūṁ. 
+
+* **English:** And my aashrits shall observe these vrats and utsavs the way Shree Vitthalnathji has explained, and they shall also adopt the mode of worship of Shree Krishna Bhagwan as explained by Shree Vitthalnathji. 
+
+---
+
+**83.** 
+
+* **Gujarati:** અને સર્વે જે અમારા આશ્રિત, તેમણે દ્વારિકા આદિક જે તીર્થ તેમની યાત્રા જે તે પોતાના સામર્થ્ય પ્રમાણે યથાવિધિએ કરીને કરવી અને વળી પોતાના સામર્થ્ય પ્રમાણે દીનજનને વિષે દયાવાન થવું.
+
+* **Lipi:** Ane sarvē jē amārā āśrita, tēmaṇē dvārikā ādika jē tīrtha tēmanī yātrā jē tē potānā sāmarthya pramāṇē yathāvidhiē karīnē karvī ane vaḷī potānā sāmarthya pramāṇē dīnajananē visē dayāvāna thavūṁ.
+
+* **English:**  And all my aashrits shall make a yatra (pilgrimage) with due rites to tirthdhams like Dwarika, according to their capabilities, and shall always be charitable and compassionate towards the poor. 
+
+---
+
+**84.** 
+
+* **Gujarati:**  અને અમારા જે આશ્રિત તેમણે વિષ્ણુ, શિવ, ગણપતિ, પાર્વતી અને સૂર્ય એ પાંચ દેવ પૂજ્ય પણે કરીને માનવા. 
+
+* **Lipi:** Ane amārā jē āśrita tēmaṇē viṣṇu, śiva, gaṇapati, pārvatī ane sūrya ē pāñca dēva pūjy panē karīnē mānavā.
+
+* **English:**  And all my aashrits should respect and worship reverently the five devs: Vishnuji, Shivji, Ganapatiji, Parvati Mata, and Surya Dev. 
+ 
+ ---
+
+**85.** 
+
+* **Gujarati:** અને જો ક્યારેક ભૂતપ્રેતાદિકનો ઉપદ્રવ થાય ત્યારે તો નારાયણ કવચનો જપ કરવો અથવા હનુમાનજીના મંત્રનો જપ કરવો, પણ એ વિના બીજા કોઈ ક્ષુદ્ર દેવના સ્તોત્ર અને મંત્રનો જપ ન કરવો. 
+
+* **Lipi:** Ane jō kẏārēk bhūtaprētādiknō upadrava thāy tyare tō nārāyaṇa kavacanō japa karvō athavā hanumānjīnā mantra nō japa karvō, paṇ ē vinā bījā kō'ī kṣudra dēvana stōtra anē mantra nō japa n karvō. 
+
+* **English:**  And in any event of distress caused by evil spirits, all my aashrits shall chant the Narayan Kavach or Hanumaan Stotram, but shall never chant the Mantras of any other devtas. 
+
+ ---
+
+**86.** 
+
+* **Gujarati:** અને સૂર્યનું ને ચંદ્રમાનું ગ્રહણ થયે સતે અમારા જે સર્વે સત્સંગી તેમણે બીજી સર્વે ક્રિયાનો તત્કાળ ત્યાગ કરીને પવિત્ર થઈને શ્રીકૃષ્ણ ભગવાનના મંત્રનો જપ કરવો. 
+
+* **Lipi:** Ane sūryanuṁ nē candramānuṁ grahaṇ thayē satē amārā jē sarvē satsaṅgī tēmaṇē bījī sarvē kriyānō tatkāla tyāga karīnē pavitra thaīnē śrīkṛṣṇa bhagavānana mantra nō japa karvō. 
+
+* **English:**  And whenever a solar or lunar eclipse takes place, all my aashrits shall immediately suspend all work and after purifying themselves shall chant Shree Krishna Bhagwan's mantra. 
+
+ ---
+
+**87.**
+
+* **Gujarati:**  અને તે ગ્રહણ મુકાઈ રહ્યા પછી વસ્ત્ર સહિત સ્નાન કરીને જે અમારા ગૃહસ્થ સત્સંગી હોય, તેમણે પોતાના સામર્થ્ય પ્રમાણે દાન કરવું અને જે ત્યાગી હોય તેમણે ભગવાનની પૂજા કરવી. 
+
+* **Lipi:** Ane tē grahaṇ mukā'ī rahyā pachhī vastra sahita snāna karīnē jē amārā gṛhastha satsaṅgī hoy, tēmaṇē potānā sāmarthya pramāṇē dāna karvūṁ ane jē tyāgī hoy, tēmaṇē bhagavānani pūjā karvī. 
+
+* **English:**   And when the eclipse is over, all my aashrits shall take a bath with clothes worn at that time. Gruhast satsangis shall give alms to the poor according to their means and tyagis (ascetics) shall do puja and worship Bhagwan. 
+
+ ---
+
+**88.**
+
+* **Gujarati:** અને અમારા સત્સંગી એવા જે ચારે વર્ણના મનુષ્ય, તેમણે જન્મનું સૂતક તથા મરણનું સૂતક તે પોતપોતાના સંબંધને અનુસારે કરીને યથાશાસ્ત્ર પાળવું. 
+
+* **Lipi:** Ane amārā satsaṅgī ēvā jē chārē varṇanā manuṣya, tēmaṇē janmanuṁ sūtaka tathā maraṇanuṁ sūtaka tē potapōtānā sambaṁdhanē anusārē karīnē yathāśāstra pāḷavuṁ. 
+
+* **English:** And my aashrits of the four castes shall observe Sutak (a period following a birth or death in the family, during which all religious rites are prohibited), according to the closeness of the relationship, as prescribed by the shastras. 
+
+ ---
+
+**89.**
+
+* **Gujarati:** અને જે બ્રાહ્મણ વર્ણ હોય, તેમણે શમ, દમ, ક્ષમા અને સંતોષ એ આદિક જે ગુણ તેમણે યુક્ત થવું અને જે ક્ષત્રિય વર્ણ હોય તેમણે શૂરવીરપણું અને ધીરજ એ આદિક જે ગુણ તેમણે યુક્ત થવું. 
+
+* **Lipi:** Ane jē brāhmaṇa varṇa hoy, tēmaṇē śama, dama, kṣamā ane santośh ē ādika jē guṇ tēmaṇē yukta thavuṁ ane jē kṣatriya varṇa hoy, tēmaṇē śūravīrapaṇuṁ ane dhīraja ē ādika jē guṇ tēmaṇē yukta thavuṁ.
+
+* **English:** And Brahmins shall have virtues such as tranquillity, self-restraint, forgiveness, contentment etc, and my Kshatriya (warrior caste) satsangis shall adorn bravery, patience and similar virtues. 
+
+ ---
+
+**90.**
+
+* **Gujarati:** અને વૈશ્ય વર્ણ હોય તેમણે કૃષિકર્મ તથા વણજ વ્યાપાર તથા વ્યાજવટો એ આદિક જે વૃત્તિઓ તેમણે કરીને વર્તવું અને જે શૂદ્ર વર્ણ હોય, તેમણે બ્રાહ્મણાદિક ત્રણ વર્ણની સેવા કરવી એ આદિક જે વૃત્તિઓ તેમણે કરીને વર્તવું. 
+
+* **Lipi:** Ane vaiśya varṇa hoy, tēmaṇē kṛṣhikarma tathā vaṇaja vyāpāra tathā vyājavaṭō ē ādika jē vṛttiyō tēmaṇē karīnē vartavuṁ ane jē śūdra varṇa hoy, tēmaṇē brāhmaṇādika traṇa varṇanī sēvā karvī ē ādika jē vṛttiyō tēmaṇē karīnē vartavuṁ. 
+
+* **English:** And the Vaishya satsangis shall practice farming, trading, money lending etc, and the Shudra satsangis shall serve the above mentioned three castes. 
+
  
