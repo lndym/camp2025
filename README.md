@@ -512,6 +512,7 @@
 * **Lipi:** Anē jē amārā satsaṅgīmāṁ ambarīṣa rājānī pēṭhē ātmanivēdi ēvu uttam bhakta hōy tēmaṇē paṇa pratham kahyuṁ tēvī rītē anukramē karīnē mānasī pūjā paryanta sarvē kriyā karvī.
 
 * **English:** And those of my aashrits who are Atmanivedi (dedicated their lives to the seva of Bhagwan) like king Ambarisha, shall also perform the sequence of rituals as described above, up to the meditation upon Shree Krishna Bhagwan.
+
 ---
 
 **56.**  
@@ -537,7 +538,7 @@
 
 * **Lipi:** Ane pachhī śrīkṛṣṇa bhagavānnenai naivēdya karīnē pachhī te prasādī evuṁ je anna te jamavuṁ ane te je ātmanivēdī vaiṣṇava temṇē sarvakālnē viṣē prītiē karīnē śrīkṛṣṇa bhagavānnī sevāparāyaṇ thavuṁ. 
 
-* **English:**  And then they shall offer naivedya (food) to him and then shall eat it after, accepting it as prasad, and they shall thus always remain in service of Shree Krishna Bhagwan with love. |
+* **English:**  And then they shall offer naivedya (food) to him and then shall eat it after, accepting it as prasad, and they shall thus always remain in service of Shree Krishna Bhagwan with love. 
 
 ---
 
