@@ -1463,3 +1463,204 @@
 * **English:** And they shall never borrow money from their Acharyas or from the mandirs of Shree Krishna Bhagwan nor shall they borrow, for their social use utensils, ornaments, clothes and other articles owned by Acharyas or mandirs.
 
 ---
+
+**151.**  
+
+* **Gujarati:** અને શ્રીકૃષ્ણ ભગવાન તથા પોતાના ગુરૂ તથા સાધુ એમના દર્શન કરવાને અર્થે ગયે સતે માર્ગને વિષે પારકું અન્ન ખાવું નહિ; તથા શ્રીકૃષ્ણ ભગવાન તથા પોતાના ગુરૂ તથા સાધુ તેમનાં જે સ્થાનક, તેમને વિષે પણ પારકું અન્ન ખાવું નહિ, કેમ જે; તે પારકું અન્ન તો પોતાના પુણ્યને હરી લે એવું છે, માટે પોતાની ગાંઠનું ખરચ ખાવું 
+
+* **Lipi:** Ane śrīkṛṣhṇa bhagavān tathā potānā gurū tathā sādhu ēmanā darśana karavānē arthē gayē satē mārganē pārkhanu anna khāvu nahi; tathā śrīkṛṣhṇa bhagavān tathā potānā gurū tathā sādhu tēmanāṁ jē sthānaka, tēmanē vise paṇa pārkhu anna khāvu nahi, kem jē; tē pārkhu anna tō potānā puṇyanē harī lē ēvu chē, māṭē potānī gāṇṭhanu kharch khāvu 
+
+* **English:** And when at mandir or visiting Gurus or Santo for darshan, satsangis shall not eat food belonging to others, either in mandirs or on the way, because it takes away one's punya. Hence, one shall eat food bought with their own money.
+
+---
+
+**152.**  
+
+* **Gujarati:**  અને પોતાનાં કામકાજ કરવા તેડ્યા જે મજૂર તેમને જેટલું ધન અથવા ધાન્ય દીધાનું કહ્યું હોય તે પ્રમાણે જ આપવું પણ તેમાંથી ઓછું ન આપવું , અને પોતા પાસે કોઈ કરજ માગતો હોય અને તે કરજ દઈ ચૂક્યા હોઈએ, તે વાતને છાની ન રાખવી; તથા પોતાનો વંશ તથા કન્યાદાન, તે પણ છાનું ન રાખવું; અને દુષ્ટ એવા જે જન, તેમની સાથે વ્યવહાર ન કરવો. 
+
+* **Lipi:** Ane potānāṁ kāmakāja karavā ṭēḍyā jē majūra tēmanē jētalu dhan athavā dhānyu dīdhānuṁ kahyu hōy tē pramāṇē j āpavuṁ paṇ tēmānthī ōchhu na āpavuṁ, anē potā pāsē kō'ī karaja māgatō hōy anē tē karaja dē chūkyā hō'īē, tē vātanē chānī na rākhavī; tathā duṣṭa ēvā jē jana, tēmanī sātha vyavahāra na karvō. 
+
+* **English:**  And one shall pay the agreed amount of money to people employed and they shall never pay less than the agreed amount and they shall not keep secret matters related to debts and family lineage. They shall keep this in writing and shall not deal with people who have bad tendencies.
+
+---
+
+**153.**  
+
+* **Gujarati:** અને જે ઠેકાણે પોતે રહેતા હોઈએ, તે ઠેકાણે કોઈક કઠણ-ભૂંડો કાળ અથવા શત્રુ અથવા રાજા, તેમના ઉપદ્રવે કરીને સર્વ પ્રકારે પોતાની લાજ જતી હોય કે ધનનો નાશ થતો હોય કે પોતાના પ્રાણનો નાશ થતો હોય. 
+
+* **Lipi:**  Ane jē ṭhēkāṇē potē rahtā hō'īē, tē ṭhēkāṇē kō'īka kaṭal-bhūṇḍō kāḷa athavā śhatru athavā rājā, tēmana upadravē karīnē sarva prakārē potānī lāj jatī hōy kē dhana-nāśa thtō hōy kē potānā prāṇanō nāśa thtō hōy.
+
+* **English:** And when loss of prestige or estate or life is threatened in a place where they reside either due to a natural disaster or by enemies or harassment by a king; 
+
+---
+
+**154.**  
+
+* **Gujarati:**  અને તે જો પોતાના મૂળ ગરાસનું તથા વતનનું ગામ હોય તો પણ તેનો વિવેકી એવા જે અમારા સત્સંગી ગૃહસ્થ તેમણે તત્કાળ ત્યાગ કરી દેવો, અને જ્યાં ઉપદ્રવ ન હોય તેવો જે બીજો દેશ તે પ્રત્યે જઈ ને સુખેથી રહેવું. 
+
+* **Lipi:**   Ane tē jō potānā mūḷ garāsnu tathā vatnanu gām hōy tō paṇ tēnō vivekī ēvā jē amārā satsaṅgī gṛhasta tēmanē tatkāla tyāga karī dēvō, anē jyā upadrav na hōy tēvō jē bījō dēś tē pratē jā'ē nē sukhethī rahēvu. 
+
+* **English:** And even if the place is their native land or inherited estate, my wise gruhast satsangis should renounce such place immediately and reside elsewhere where they can live happily without harassment.
+
+---
+
+**155.**  
+
+* **Gujarati:** અને ધનાઢ્ય એવા જે ગૃહસ્થ સત્સંગી તેમણે હિંસાએ રહિત એવા જે વિષ્ણુ સંબંધી યજ્ઞ તે કરવા ; તથા તીર્થને વિષે તથા દ્વાદશી આદિક પર્વને વિષે બ્રાહ્મણ તથા સાધુ તેમને જમાડવા.
+
+* **Lipi:**  Ane dhanāḍhya ēvā jē gṛhasta satsaṅgī tēmana hinsāē rahit ēvā jē viṣṇu sambandhī yagna tē karavā ; tathā tīrthanē vise tathā dvādaśī ādika parvanaē vise brāhmaṇ tathā sādhu tēmane jamāḍavā.
+
+* **English:** And my wealthy gruhasts satasangis shall perform nonviolent sacrifices like Vishnu yagna; they shall also feed the Brahmins and Sadhus in tirthstans on auspicious days.
+
+---
+
+**156.**  
+
+* **Gujarati:** અને તે ધનાઢ્ય એવા જે ગૃહસ્થ સત્સંગી તેમણે ભગવાનના મંદિરને વિષે મોટા ઉત્સવ કરાવવા તથા સુપાત્ર એવા જે બ્રાહ્મણ તેમને નાના પ્રકારના દાન દેવા. 
+
+* **Lipi:** Ane te dhanāḍhya ēvā jē gṛhastha satsaṅgī tēmaṇē bhagavānana mandirane visē mōṭā utsava karāvavā tathā supātra ēvā jē brāhmaṇa tēmanē nānā prakāranā dāna dēvā. 
+
+* **English:** And my wealthy gruhast satsangis shall organize big festivals in mandirs and give alms to worthy Brahmins. 
+
+---
+
+**157.**  
+
+* **Gujarati:**  અને અમારે આશ્રિત એવા જે સત્સંગી રાજા તેમણે ધર્મશાસ્ત્રને આશરીને પોતાના પુત્રની પેઠે પોતાની પ્રજાનું પાલન કરવું. અને પૃથ્વીને વિષે ધર્મનું સ્થાપન કરવું.
+
+* **Lipi:** Ane amārē āśrita ēvā jē satsaṅgī rājā tēmaṇē dharmashastranē āśarīnē pōtānā putranī pēṭhē pōtānī prajānu pālana karvu. Ane pṛthvīnē visē dharmanu sthāpan karvu. 
+
+* **English:** And my aashrits who are rulers shall treat their subjects as they treat their own children in accordance with Dharmashastras (Hindu law book), and shall establish Dharma on earth. 
+
+---
+
+**158.**  
+
+* **Gujarati:** અને તે રાજા તેમણે રાજ્યનાં જે સાત અંગ તથા ચાર ઉપાય તથા છ ગુણ તે જેતે લક્ષણે કરીને યથાર્થપણે જાણવા અને તીર્થ જે ચાર મોકલ્યાનાં સ્થાનક તથા વ્યવહારના જાણનારા જે સભાસદ તથા દંડવા યોગ્ય જે માણસ તથા દંડવા યોગ્ય નહિ એવા જે માણસ એ સર્વને લક્ષણે કરીને યથાર્થપણે જાણવા.
+
+* **Lipi:** Ane tē rājā tēmaṇē rājyanā jē sāta aṅga tathā chār upāya tathā chha guṇ tē jē te lakṣaṇē karīnē yathārthapṇē jāṇavā anē tīrth jē chār mōkalyānā sthānaka tathā vyavahāranā jāṇanārā jē sabhāsad tathā daṇḍvā yōgya jē māṇas anē daṇḍvā yōgya nahi ēvā jē māṇas ē sarvanē lakṣaṇē karīnē yathārthapṇē jāṇavā. 
+
+* **English:**  They shall fully know the 7 angas (parts) of a kingdom to administer the state successfully, the 4 upays (ways) to have a successful conquest, 6 guns (diplomatic qualities) and 4 tirths (significant places) to send spies to. Not only shall they know the characteristics of the persons well versed in worldly matters and social affairs, but also the qualities of persons who deserve to be punished and those who do not deserve to be punished. 
+
+---
+
+**159.**  
+
+* **Gujarati:**  હવે સુવાસિની બાઈઓના વિશેષ ધર્મ કહીએ છીએ; અમારે આશ્રિત જે સુવાસિની બાઈઓ, તેમણે પોતાનો પતિ અંધ હોય, રોગી હોય, દરિદ્ર હોય, નપુંસક હોય તો પણ તેને ઈશ્વરની પેઠે સેવવો અને તે પતિ પ્રત્યે કટુ વચન ન બોલવું. 
+
+* **Lipi:**  Have suvāsinī bā'īōnā visēṣa dharma kahīē chhīē; amārē āśrita jē suvāsinī bā'īō, tēmaṇē pōtānō pati andha hōy, rōgī hōy, daridra hōy, napuṁsak hōy tō paṇ tēnē īśvaranī pēṭhē sēvavō anē tē pati pratyē kaṭu vacan na bōlavuṁ.
+
+* **English:**  Now specific Dharmas of married women are being described; my female aashrits that are married shall serve and worship their husbands in the manner in which they serve and worship Bhagwan, even if they are blind, ailing, poor or impotent and shall never utter harsh words to them. 
+
+---
+
+**160.**  
+
+* **Gujarati:**  અને તે સુવાસિની સ્ત્રીઓ તેમણે રૂપ ને યૌવન તેણે યુક્ત અને ગુણવાન એવો જે અન્ય પુરુષ તેનો પ્રસંગ સહજ સ્વભાવે પણ ન કરવો. 
+
+* **Lipi:**  Ane tē suvāsinī strīō tēmaṇē rūpa nē yauvana tēṇē yukta anē guṇavān ēvō jē anya puruṣ tēnō prasaṅga sahaja svabhāvē paṇ na karavu. 
+
+* **English:**  And my female aashrtis who are married shall never keep contact with any young man other than their husband even though the other man may be handsome and or virtuous. 
+
+---
+
+**161.**  
+
+* **Gujarati:**  અને પતિવ્રતા એવી જે સુવાસિની સ્ત્રીઓ તેમણે પોતાની નાભિ, સાથળ અને છાતી તેને બીજો પુરુષ દેખે એમ ન વર્તવું અને ઓઢ્યાના વસ્ત્ર વિના ઉઘાડે શરીરે ન રહેવું અને ભાંડભવાઈ જોવા ન જવું અને નિર્લજ્જ એવી જે સ્ત્રીઓ તથા સ્વૈરિણી, કામિની અને પુંશ્ચલી એવી જે સ્ત્રીઓ, તેમનો સંગ ન કરવો. 
+
+* **Lipi:**   Ane pativrata ēvī jē suvāsinī strīō tēmaṇē pōtānī nābhi, sāthala anē chātī tēnē bījō puruṣ dēkhē ēma na vartavu anē ōḍhyānā vastra vinā ughāḍē śarīrē na rahēvu anē bhāṇḍabhavā'ī jōvā na juvu anē nirlajja ēvī jē strīō tathā svairiṇī, kāminī anē puṁścalī ēvī jē strīō, tēnō saṅga na karavo.
+
+* **English:**  And devout wives shall never act in a manner that would expose their breasts, navel or thighs, and attract the attention of other males and they shall never keep their bodies uncovered and they shall never go to see vulgar shows nor associate with immoral women or courtesans.
+
+---
+
+**162.**  
+
+* **Gujarati:** અને તે સુવાસિની સ્ત્રીઓ, તેમણે પોતાનો પતિ પરદેશ ગયે સતે આભૂષણ ન ધારવાં, રૂડાં વસ્ત્ર ન પહેરવાં; પારકેઘેર બેસવા ન જવું અને હાસ્ય વિનોદાદિકનો ત્યાગ કરવો. 
+
+* **Lipi:**  Ane tē suvāsinī strīō, tēmaṇē pōtānō pati paradēś gayē satē ābhūṣaṇa n dhārvāṁ, rūḍāṁ vastara n pahērvāṁ; pārakeghēra bēsavā n juvuṁ anē hāsyavādādikano tyāga karvuṁ. 
+
+* **English:** And when the husbands of married women are far away from home, they shall not wear attractive clothing or ornaments, visit other peoples’ homes nor indulge in joyous activities. 
+
+---
+
+**163.**  
+
+* **Gujarati:** હવે વિધવા સ્ત્રીઓના વિશેષ ધર્મ કહીએ છીએ; અમારે આશ્રિત જે વિધવા સ્ત્રીઓ તેમણે તો પતિ બુદ્ધિએ કરીને શ્રીકૃષ્ણ ભગવાનને સેવવા અને પોતાના પિતા પુત્રાદિક જે સંબંધી, તેમની આજ્ઞાને વિષે વર્તવું પણ સ્વતંત્રપણે ન વર્તવું.
+
+* **Lipi:** Have vidhavā strīōnā visēṣa dharma kahīē chhīē; amārē āśrita jē vidhavā strīō tēmanē tō pati buddhiē karīnē śrīkṛṣhṇa bhagavānani sevavā anē pōtānā pitā putrādik jē sambandhī, tēmanī āgyānē visē vartavu paṇ svatantrapṇē na vartavu. 
+
+* **English:**  Now specific dharmas of widowed women are being described; my widowed aashrits shall worship Shree Krishna Bhagwan as their husbands. They shall always live under the commandment of their father, sons or other such relatives but never act independently. 
+
+
+---
+
+**164.**  
+
+* **Gujarati:** અને તે વિધવા સ્ત્રીઓ તેમણે પોતાના સમીપ સંબંધ વિનાના જે પુરુષ તેમનો સ્પર્શ ક્યારેય ન કરવો; અને પોતાની યુવાવસ્થાને વિષે અવશ્ય કાર્ય વિના સમીપ સંબંધ વિનાના જે યુવાન પુરુષ, તેમની સાથે ક્યારેય પણ બોલવું નહિ
+
+* **Lipi:** Ane tē vidhavā strīō tēmanē pōtānā samīpa sambandha vinānā jē puruṣ tēmanō sparsa kyārē na karavu; anē pōtānī yuvā avasthā nē visē avśhya kārya vinā samīpa sambandha vinānā jē yuvāna puruṣ, tēnē sātha kyārē pun bolvu nahi 
+
+* **English:** And widowed women shall never touch any male who is not closely related to them; and young widows shall never converse with any young man who are not closely related unless absolutely necessary. 
+
+---
+
+**165.**  
+
+* **Gujarati:** અને ધાવણો જે બાળક, તેના સ્પર્શને વિષે તો જેમ પશુને અડી જવાય અને દોષ નથી તેમ દોષ નથી; અને કોઈ અવશ્યનું કામકાજ પડે તેને વિષે કોઈક વૃધ્ધ પુરુષને અડી જવાય તથા તે વૃધ્ધ સાથે બોલાય તેને વિષે દોષ નથી. 
+
+* **Lipi:**  Ane dhāvaṇō jē bāḷak, tēnā sparsanē visē tō jēma paśunē aḍī javāy anē doṣh nathi tēma dosh nathi; anē kō'ī avśhyanu kārya padē tēnē visē kō'ī vṛddha puruṣanē aḍī javāy tathā tē vṛddha sātha bolāy tēnē visē doṣh nathi.
+
+* **English:** And there is no offense in casually touching an infant just as there is not offense in touching cattle; And there is no offense in touching or conversing with an old man when it becomes absolutely necessary. 
+
+---
+
+**166.**  
+
+* **Gujarati:** અને તે વિધવા સ્ત્રીઓ તેમણે પોતાના સમીપ સંબંધ વિનાના જે પુરુષ, તે થકી કોઈપણ વિદ્યા ન ભણવી; અને વ્રત ઉપવાસે કરીને વારંવાર પોતાના દેહનું દમન કરવું
+
+* **Lipi:**   Ane te vidhva strio temane potana samip sambandh vina na je purush, te thaki koi pan vidya na bhanavi; ane vrat upvase kari ne varanvar potana dehnu daman karvu.
+
+* **English:** And widowed women shall not receive education from a male person who is not closely related to them; and they shall constantly control their body and senses by observing vrats (fasts). 
+
+---
+
+**167.**  
+
+* **Gujarati:** અને તે વિધવા સ્ત્રીઓ, તેમણે પોતાના ઘરમાં પોતાના જીવનપર્યંત દેહ નિર્વાહ થાય એટલું જ જો ધન હોય તો તે ધન જે તે ધર્મ કાર્યને વિષે પણ ન આપવું અને જો તેથી અધિક હોય તો આપવું
+
+* **Lipi:**  Ane te vidhva strio, temane potana gharma potana jivanparyant deh-nirvah thay etluj dhana hoy to te dhan je te dharm karyane vise pan na aapvu ane jeo te tethi adhik hoy to aapvu.
+
+* **English:** And those widowed women who have just sufficient wealth for lifetime maintenance, shall not offer it even for religious purposes; they may do so if they have a surplus to their requirements. 
+
+---
+
+**168.**  
+
+* **Gujarati:** અને વિધવા સ્ત્રીઓ તેમણે એકવાર આહાર કરવો અને પૃથ્વીને વિષે સૂવું અને મૈથુનાસક્ત એવાં જે પશુપક્ષી આદિક જીવપ્રાણી માત્ર તેમને ક્યારેય જાણીને જોવા નહીં. 
+
+* **Lipi:**  Ane vidhva strio temane ekvar aahar karvo ane pruthvinu vise suvu ane maithunaskt evan je pashupakshi aadi jivaprani matra te manne janine jovani nahi.
+
+* **English:** And widowed women shall take a meal only once a day and sleep on the floor and they shall never deliberately look at any creature in the act of procreation.
+
+---
+
+**169.**  
+
+* **Gujarati:** અને તે વિધવા સ્ત્રીઓ, તેમણે સુવાસિની સ્ત્રીના જેવો વેષ ન ધારવો, તથા સંન્યાસણી તથા વૈરાગણી તેના જેવો વેષ ન ધારવો, અને પોતાના દેશ, કુળ અને આચાર તેને વિરુધ્ધ એવો જે વેષ તે પણ ક્યારેય ન ધારવો.
+
+* **Lipi:** Ane te vidhva strio, temane suvāsinī strina jevo vesh na dharvo, tatha sannyasni tatha vairagni tena jevo vesha na dharvo, ane potana desh, kul ane achar tena viruddh evo je vesha te pun kyare na dharvo. 
+
+* **English:**  And widowed women shall never dress like a married woman, a sanyasi (female recluse), vairagi (nun) nor dress in a manner which is contrary to the custom of the place or their family. 
+
+---
+
+**170.**  
+
+* **Gujarati:** અને ગર્ભની પાડનારી જે સ્ત્રી તેનો સંગ ન કરવો અને તેનો સ્પર્શ પણ ન કરવો ; અને પુરુષના શૃંગારરસ સંબંધી જે વાર્તા, તે ક્યારેય ન કરવી અને ન સાંભળવી. 
+
+* **Lipi:**  Ane garbhani padnari je stri te no sang na karvo ane teno sparsh pan na karvo; ane purushna shrunghar rus sambandhi je varta, te kyare na karvi ane na sambhavi. 
+
+* **English:**   And they shall never associate with, nor even touch women who practice abortion; and they shall not indulge in or listen to lustful conversations regarding males.
+
+  ---
