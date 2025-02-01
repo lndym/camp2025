@@ -856,4 +856,103 @@
 
 * **English:** And the Vaishya satsangis shall practice farming, trading, money lending etc, and the Shudra satsangis shall serve the above mentioned three castes. 
 
+---
+
+**91.**  
+
+* **Gujarati:** અને જે દ્વિજ હોય, તેમણે ગર્ભાધાનાદિક સંસ્કાર તથા આહ્નિક તથા શ્રાધ્ધ એ ત્રણ જે તે પોતાના ગૃહ્યસૂત્રને અનુસારે કરીને, જેવો જેનો અવસર હોય અને જેવી ધનસંપત્તિ હોય તે પ્રમાણે કરવા. 
+
+* **Lipi:** Ane jē dvija hoy, tēmaṇē garbhādhānādika sanskāra tathā āhnika tathā śrāddha ē traṇa jē tē potānā gṛhyasūtranē anusārē karīnē, jēvō jēno avasara hoy ane jēvī dhana samipatō hoy, tē pramāṇē karvā. 
+
+* **English:** And the Dwijas (those who are eligible for Yagnopavit) shall perform all 16 sanskaars as per shastras and perform daily rituals and Shraaddh at the appropriate time as per one’s own familial traditions according to their capability. 
+
+---
+
+**92.**  
+
+* **Gujarati:** અને ક્યારેક જાણે અથવા અજાણે જો નાનું મોટું પાપ થઈ જાય તો પોતાની શક્તિ પ્રમાણે તે પાપનું પ્રાયશ્ચિત કરવું 
+
+* **Lipi:** Ane kyārēka jāṇē athavā ajāṇē jō nānuṁ mōṭuṁ pāpa thai jāy tō potānī śakti pramāṇē tē pāpanuṁ prāyacchita karvūṁ 
+
+* **English:** And If anyone has committed any paap (sins), big or small, knowingly or unknowingly, they shall correct their paaps to the best of their ability
+
+---
+
+**93.**  
+
+* **Gujarati:** અને ચાર વેદ તથા વ્યાસસૂત્ર તથા શ્રીમદ્ ભાગવત નામે પુરાણ તથા મહાભારતને વિષે તો શ્રી વિષ્ણુસહસ્ત્રનામ
+
+* **Lipi:** Ane cāra vēda tathā vyāsasūtra tathā śrīmad bhāgavata nāmē purāṇa tathā mahābhāratanē visē to śrī viṣṇusaḥasranāma
+
+* **English:**  And the four Vedas, Vyaas-Sutras, Shreemad Bhagwat Purana and Vishnusahastranama of Mahabharat 
+
+---
+
+**94.** 
+
+* **Gujarati:** તથા શ્રી ભગવદગીતા તથા વિદુરજીએ કહેલી જે નીતિ તથા સ્કંધ પુરાણનો જે વિષ્ણુખંડ તેને વિષે રહ્યું એવું જે શ્રીવાસુદેવમાહાત્મ્ય 
+
+* **Lipi:** Tathā śrī bhagavadgītā tathā vidurajīē kahēlī jē nīti tathā skandha purāṇanō jē viṣṇukhaṇḍa tēnē visē rahyūṁ evu jē śrīvāsudevamāhātmya
+
+* **English:** And Shreemad Bhagvad Gita, the code of ethics enunciated by Vidurji and Vasudeva Mahatmya of Skandh Puran’s Vishnu Khanda 
+
+---
+
+**95.** 
+
+* **Gujarati:**  અને ધર્મશાસ્ત્રના મધ્યમાં રહી એવી જે યાજ્ઞવલ્ક્ય ૠષિની સ્મૃતિ એ જે આઠ સત્શાસ્ત્ર તે અમને ઈષ્ટ છે. 
+
+* **Lipi:** Ane dharmaśāstranā madhyamāṁ rahī ēvī jē yājñavalkya ṛṣinī smṛti ē jē āṭha satsāstrō tē amanē īṣṭa che.
+
+* **English:** And the Smruti, a part of the Dharmashastras, by Yagnavalkya Rishi. These eight Shastras are dearest to me. 
+
+---
+
+**96.** 
+
+* **Gujarati:**  અને પોતાના હિતને ઈચ્છતા એવા જે અમારા સર્વે શિષ્ય તેમણે એ આઠ સત્શાસ્ત્ર જે તે સાંભળવા, અને અમારા આશ્રિત જે દ્વિજ તેમણે એ સત્શાસ્ત્ર જે તે ભણવા તથા ભણાવવા તથા એમની કથા કરવી.
+
+* **Lipi:** Ane potānā hitnē icchhatā evā je amārā sarvē śiṣya tēmaṇē ē āṭh satsāstra je tē sāmbhḷavā, anē amārā āśrita jē dvija tēmaṇē ē satsāstra je tē bhaṇavā tathā bhaṇāvavā anē ēmanī kathā karvī. 
+
+* **English:** And all my disciples desirous of salvation shall listen to these eight shastras and my Dvija aashrits shall study, teach, and preach them to the others. 
+
+---
+
+**97.** 
+
+* **Gujarati:** અને તે આઠ સત્શાસ્ત્રમાંથી આચાર, વ્યવહાર અને પ્રાયશ્ચિત એ ત્રણનો જે નિર્ણય કરવો તેને વિષે તો મિતાક્ષરા ટીકાએ યુક્ત એવી જે યાજ્ઞવલ્ક્ય ઋષિની સ્મૃતિ, તેનું ગ્રહણ કરવું. 
+
+* **Lipi:** Anē tē āṭh satsāstramānthī ācāra, vyavahāra anē prāyaśchitta ē trāṇō jē niraṇaya karvō tēnē viṣē tō mitākṣarā ṭīkāē yukta evī je yājñavalky ṛṣiṇī smṛti, tēnu grahaṇ karvū. 
+
+* **English:** And amongst these eight shastras mentioned, My aashrits shall consider and accept the Mitakshara Tika (commentary) of Yagnavalkya Rishi's Smruti as the guiding authority to take decisions on matters of conduct, daily routines, rites and rituals, secular business affairs, and code of expiation.
+
+---
+
+**98.** 
+
+* **Gujarati:** અને વળી એ આઠ સત્શાસ્ત્રને વિષે જે શ્રીમદ્ ભાગવત પુરાણ તેના દશમ ને પંચમ નામે જે બે સ્કંધ, તે જે તે શ્રીકૃષ્ણ ભગવાનનું માહાત્મ્ય જાણવાને અર્થે સર્વથી અધિકપણે જાણવા. 
+
+* **Lipi:** Anē vaḷī ē āṭh satsāstranē viṣē jē śrīmad bhāgavata purāṇa tēnā daśama nē pañcama nāmē jē bē skandha, tē jē tē śrīkṛṣṇa bhagavān nūṁ māhātmya jāṇavānē arthe sarvathi adhikpaṇē jāṇavā. 
+
+* **English:** And amongst these 8 shastras, the fifth and tenth Skandhs (sections) of the Shreemad Bhagwat Puran shall be regarded as the best for a clear understanding of the greatness and glory of Shree Krishna Bhagwan.
+
+---
+
+**99.** 
+
+* **Gujarati:** અને દશમસ્કંધ તથા પંચમસ્કંધ તથા યાજ્ઞવલ્ક્યની સ્મૃતિ એ જે ત્રણ તે અનુક્રમે કરીને અમારું ભક્તિશાસ્ત્ર, યોગશાસ્ત્ર અને ધર્મશાસ્ત્ર છે. કહેતા દશમસ્કંધ તે ભક્તિશાસ્ત્ર છે અને પંચમસ્કંધ તે યોગશાસ્ત્ર છે ; અને યાજ્ઞવલ્ક્યની સ્મૃતિ તે ધર્મશાસ્ત્ર છે એમ જાણવું. 
+
+* **Lipi:** Anē daśama-skandha tathā pañcama-skandha tathā yājñavalkyanī smṛti ē jē traṇ tē anukramē karīnē amāruṁ bhaktiśāstra, yōgśāstra anē dharmśāstra chē. Kahtā daśama-skandha tē bhaktiśāstra chē anē pañcama-skandha tē yōgśāstra chē; anē yājñavalkyanī smṛti tē dharmśāstra chē ēm jāṇavuṁ. 
+
+* **English:** And the tenth Skandh shall be esteemed as my Bhakti Shastra, the fifth Skandh as Yoga Shastra, and Yagnavalkya Smruti as Dharma Shastra. 
+
+---
+
+**100.** 
+
+* **Gujarati:** અને શ્રી રામાનુજાચાર્યે કર્યુ એવું જે વ્યાસસૂત્રનું શ્રીભાષ્ય તથા શ્રીભગવદગીતાનું ભાષ્ય એ જે બે તે અમારું અધ્યાત્મશાસ્ત્ર છે એમ જાણવું.
+
+* **Lipi:** Anē śrī rāmānujācāryē karyu ēvu je vyāsasūtra nūṁ śrībhāṣya tathā śrībhagavadgītānūṁ bhāṣya ē jē bē tē amāruṁ adhyātmaśāstra chē ēm jāṇavuṁ. 
+
+* **English:** And all my aashrits shall acknowledge the Shri Bhashya (commentaries on Vyaas-Sutra) and Shree Bhagwat Gita Bhashya by Shree Ramanujacharya, as my vedantic philosophy. 
  
